@@ -42,6 +42,11 @@ https://www.3kla.cn/
 
 https://www.3kla.cn/subscribe/txt/Anran.txt
 
+ss-ssr互换
+
+https://usky.ml/tool/ssrToss
+
+
 分享个批量节点转订阅地址的 可以自用  也可以用来测速  
 
 https://www.3kla.cn/subscribe/index.php
@@ -50,4 +55,5 @@ https://www.3kla.cn/subscribe/index.php
 测速软件
 
 https://github.com/tindy2013/stairspeedtest-reborn
+
 运行exe，输入订阅地址即可
