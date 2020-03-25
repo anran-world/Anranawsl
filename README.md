@@ -57,3 +57,14 @@ https://www.3kla.cn/subscribe/index.php
 https://github.com/tindy2013/stairspeedtest-reborn
 
 运行exe，输入订阅地址即可
+
+
+私人专用,公众号点击Call me加我购买
+
+每日2G不限速一直使用(用来出去找节点)    8元
+
+0元5G不限速(一直买)一直可用            10元
+
+100G免费撸不限速                      20元
+
+免费仿谷歌云,注册直接可用无限制        10元
