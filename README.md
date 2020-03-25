@@ -38,7 +38,7 @@
 
 https://www.3kla.cn/
 
-本日订阅地址：
+2020-03-25订阅地址更新：
 
 https://www.3kla.cn/subscribe/txt/Anran.txt
 
