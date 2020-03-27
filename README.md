@@ -34,8 +34,25 @@
 免费福利哦
 
 
-2020-03-25订阅地址更新：
-https://www.3kla.cn/subscribe/txt/Anran.txt
+2020-03-27订阅地址更新：
+
+https://www.3kla.cn/subscribe/txt/anranzuixin.txt
+
+使用教程
+打开SSRR4.0  
+任务栏右下角
+服务器订阅
+ssr服务器订阅设置
+add
+网址换成我那个订阅地址
+服务器订阅
+更新ssr服务器(不通过代理)
+右击
+服务器
+选择一个
+然后右键系统代理模式
+推荐全局代理(也可以pac   就是中国的不走代理,只有禁止的ip才走代理,可能误判)
+
 
 我的博客
 https://www.3kla.cn/
@@ -72,3 +89,5 @@ https://github.com/tindy2013/stairspeedtest-reborn
 100G一直撸不限速                      20元
 
 免费仿谷歌云(VPS)，建站/搭梯子无限制    10元
+
+
