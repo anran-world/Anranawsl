@@ -34,7 +34,8 @@
 免费福利哦
 
 
-2020-03-27订阅地址更新：
+2020-03-28
+订阅地址更新：
 
 https://www.3kla.cn/subscribe/txt/anranzuixin.txt
 
