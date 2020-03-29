@@ -34,7 +34,7 @@
 免费福利哦
 
 
-2020-03-28
+2020-03-29
 订阅地址更新：
 
 https://www.3kla.cn/subscribe/txt/anranzuixin.txt
@@ -77,7 +77,7 @@ https://usky.ml/tool/ssrToss
 分享个批量节点转订阅地址的 可以自用  也可以用来测速  
 https://www.3kla.cn/subscribe/index.php
 
-ss/ssr/vray转第三方
+ss/ssr/vray转第三方 
 https://bianyuan.xyz/basic
 
 
