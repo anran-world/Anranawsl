@@ -36,8 +36,10 @@
 
 2020-03-29
 订阅地址更新：
-
-https://www.3kla.cn/subscribe/txt/anranzuixin.txt
+ssr
+https://www.3kla.cn/subscribe/txt/Anranssr.txt
+v2ray
+https://www.3kla.cn/subscribe/txt/Anranray.txt
 
 使用教程
 
