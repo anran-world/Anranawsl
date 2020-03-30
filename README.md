@@ -19,25 +19,14 @@
 
 祝大家每天开心哦
 
-欢迎关注一下公众号
-
-主要分享以下:
-
-高速节点
-
-各种svip
-
-每日重大新闻
-
-破解软件
-
-免费福利哦
-
 
 2020-03-29
 订阅地址更新：
 ssr
 https://www.3kla.cn/subscribe/txt/Anranssr.txt
+
+
+
 最快节点(最快可以7M)
 请及时使用,有效期大约一天
 ssr://cGx1cy11czEuc3RhcnNjbG91ZC5pbjoyMDAwMjphdXRoX2FlczEyOF9zaGExOmNoYWNoYTIwLWlldGY6aHR0cF9zaW1wbGU6VUc5M1NISTAvP29iZnNwYXJhbT1NR1kyTkdFMU9EQTBMbTFwWTNKdmMyOW1kQzVqYjIwJnByb3RvcGFyYW09TlRnd05EcG9ZWFExYlRCek0zTjFjZyZyZW1hcmtzPTVMdUs1cGVsNXB5QTViLXJMUzNtcktMb3Y0N2xoYlBtczZqbGhhemt2SmZsajdkQmJuSmhibUYzYzJ3Jmdyb3VwPVFXNXlZVzQ
@@ -45,34 +34,9 @@ ssr://cGx1cy11czEuc3RhcnNjbG91ZC5pbjoyMDAwMjphdXRoX2FlczEyOF9zaGExOmNoYWNoYTIwLW
 ssr://cGx1cy1qcDEuc3RhcnNjbG91ZC5pbjoyMDAwMTphdXRoX2FlczEyOF9zaGExOmNoYWNoYTIwLWlldGY6aHR0cF9zaW1wbGU6VUc5M1NISTAvP29iZnNwYXJhbT1NR1kyTkdFMU9EQTBMbTFwWTNKdmMyOW1kQzVqYjIwJnByb3RvcGFyYW09TlRnd05EcG9ZWFExYlRCek0zTjFjZyZyZW1hcmtzPTU3LTc1YUtaNVlXYVptRnVjV2xoYm1ka1lXNW5MbU52YlEmZ3JvdXA9UUhZeVRHbHpkQ0Rwb3BIcGdaUG1yNF9scEtubGo1SGx1SU0
 
 
+
 v2ray
 https://www.3kla.cn/subscribe/txt/Anranray.txt
-
-使用教程
-
-打开SSRR4.0  
-
-任务栏右下角
-
-服务器订阅
-
-ssr服务器订阅设置
-
-add
-
-网址换成我那个订阅地址
-
-服务器订阅
-
-更新ssr服务器(不通过代理)
-
-右击服务器
-
-选择一个
-
-然后右键系统代理模式
-
-推荐全局代理(也可以pac   就是中国的不走代理,只有禁止的ip才走代理,可能误判)
 
 
 我的博客
@@ -97,11 +61,15 @@ https://github.com/tindy2013/stairspeedtest-reborn
 
 
 
-同时搭建各种网站,最好提供参照的,
+同时搭建各种网站,可带参照来,
+
+
 百分百还原,一条龙服务.
+
+
 私人专用,公众号点击Call me加我购买
 
-每日2G不限速一直使用(用来出去找节点)    8元
+每日2G不限速一直使用(用来出去找节点)    5元
 
 0元5G不限速(一直买)一直可用            10元
 
