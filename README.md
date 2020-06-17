@@ -23,17 +23,9 @@
 
 
 2020-03-29
-订阅地址更新：
-ssr
-https://www.3kla.cn/subscribe/txt/Anranssr.txt
+节点更新：
+http://www.anran.cf/?id=3
 
-
-
-最快节点(最快可以7M)
-请及时使用,有效期大约一天
-ssr://cGx1cy11czEuc3RhcnNjbG91ZC5pbjoyMDAwMjphdXRoX2FlczEyOF9zaGExOmNoYWNoYTIwLWlldGY6aHR0cF9zaW1wbGU6VUc5M1NISTAvP29iZnNwYXJhbT1NR1kyTkdFMU9EQTBMbTFwWTNKdmMyOW1kQzVqYjIwJnByb3RvcGFyYW09TlRnd05EcG9ZWFExYlRCek0zTjFjZyZyZW1hcmtzPTVMdUs1cGVsNXB5QTViLXJMUzNtcktMb3Y0N2xoYlBtczZqbGhhemt2SmZsajdkQmJuSmhibUYzYzJ3Jmdyb3VwPVFXNXlZVzQ
-
-ssr://cGx1cy11czEuc3RhcnNjbG91ZC5pbjoyMDAwMjphdXRoX2FlczEyOF9zaGExOmNoYWNoYTIwLWlldGY6aHR0cF9zaW1wbGU6VUc5M1NISTAvP29iZnNwYXJhbT1NR1kyTkdFMU9EQTBMbTFwWTNKdmMyOW1kQzVqYjIwJnByb3RvcGFyYW09TlRnd05EcG9ZWFExYlRCek0zTjFjZyZyZW1hcmtzPTVMdUs1cGVsNXB5QTViLXJMUzNtcktMb3Y0N2xoYlBtczZqbGhhemt2SmZsajdkQmJuSmhibUYzYzJ3Jmdyb3VwPVFXNXlZVzQ
 
 
 v2ray
@@ -79,16 +71,8 @@ https://github.com/tindy2013/stairspeedtest-reborn
 百分百还原,一条龙服务.
 
 
-私人专用,公众号点击Call me加我购买
+私人专用
+www.anran.ga
 
-每日2G不限速一直使用(用来出去找节点)    1元
-
-0元5G不限速(一直买)一直可用            2元
-
-30G一直撸不限速                       5元
-
-100G一直撸不限速                      5元
-
-免费仿谷歌云(VPS)，建站/搭梯子无限制    10元
 
 
