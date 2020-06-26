@@ -2,7 +2,7 @@
 关于作者
 
 公众号：Anranawsl
-<img src="https://mmbiz.qpic.cn/mmbiz_png/T2j1kJwdpLYyzETke1pTB6ZzDGj2A6uRTpPicauL7SgYuc4vEmYjrCVzaFJAZictgGhoKsRB5G4Wogo7G9uXSooQ/0?wx_fmt=png" width=400px;>
+<img src="https://mmbiz.qpic.cn/mmbiz_png/T2j1kJwdpLYyzETke1pTB6ZzDGj2A6uRTpPicauL7SgYuc4vEmYjrCVzaFJAZictgGhoKsRB5G4Wogo7G9uXSooQ/0?wx_fmt=png" width=400px;>  
 有什么不懂的问题,欢迎留言,一起共同进步
 
 关注我,真的不限速哦
