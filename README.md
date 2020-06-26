@@ -1,7 +1,7 @@
 # Anranawsl
 关于作者
 
-公众号：Anranawsl
+公众号：Anranawsl  
 <img src="https://mmbiz.qpic.cn/mmbiz_png/T2j1kJwdpLYyzETke1pTB6ZzDGj2A6uRTpPicauL7SgYuc4vEmYjrCVzaFJAZictgGhoKsRB5G4Wogo7G9uXSooQ/0?wx_fmt=png" width=400px;>  
 有什么不懂的问题,欢迎留言,一起共同进步
 
@@ -22,7 +22,7 @@
 祝大家每天开心哦
 
 
-2020-06-26
+2020-06-26  
 #[节点更新：](http://www.anran.cf/?id=3 "节点更新：")http://www.anran.cf/?id=3
 
 
@@ -43,10 +43,9 @@
 
 #[测速软件：](https://github.com/tindy2013/stairspeedtest-reborn "测速软件：")https://github.com/tindy2013/stairspeedtest-reborn
 
-#同时搭建各种网站,可带参照来,
-百分百还原,一条龙服务.
-#私人专用
-www.anran.ga
+#同时搭建各种网站,可带参照来,  
+百分百还原,一条龙服务.  
+#私人专用  www.anran.ga
 
 
 
