@@ -37,6 +37,5 @@
 
 # [测速软件：](https://github.com/tindy2013/stairspeedtest-reborn "测速软件：")https://github.com/tindy2013/stairspeedtest-reborn
 
-# 同时搭建各种网站,可带参照来,  
-百分百还原,一条龙服务.  
+# 同时搭建各种网站,可带参照来,  百分百还原,一条龙服务.  
 # [私人专用：](www.anran.ga"私人专用：")www.anran.ga
