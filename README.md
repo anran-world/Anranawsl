@@ -37,4 +37,4 @@
 
 [测速软件：](https://github.com/tindy2013/stairspeedtest-reborn "测速软件：")https://github.com/tindy2013/stairspeedtest-reborn
 
-[私人专用：]("http://www.anran.ga/"私人专用：")http://www.anran.ga/
+[私人专用：](http://www.anran.ga/ "私人专用：")http://www.anran.ga/
