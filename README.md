@@ -1,7 +1,6 @@
 # Anranawsl
 # 关于作者  
 <img src="https://mmbiz.qpic.cn/mmbiz_jpg/T2j1kJwdpLbeahPBzd3LIESuPAbdUbt5rvOguQPWr59fA3DU63qbiclIwuqI3BsPhSoSsL3FmDGphEuwicbhPRlw/0?wx_fmt=jpeg" width=200px;>  
-# 公众号
 <img src="https://mmbiz.qpic.cn/mmbiz_png/T2j1kJwdpLYyzETke1pTB6ZzDGj2A6uRTpPicauL7SgYuc4vEmYjrCVzaFJAZictgGhoKsRB5G4Wogo7G9uXSooQ/0?wx_fmt=png" width=400px;>  
   
 有什么不懂的问题,欢迎留言,一起共同进步  
@@ -22,7 +21,7 @@
   
 祝大家每天开心哦
   
-
+# 最近更新
 2020-06-26  
 [节点更新：](http://www.anran.cf/?id=3 "节点更新：")http://www.anran.cf/?id=3
 
