@@ -1,6 +1,6 @@
 # 每天各种白嫖福利  
   
-<img src="http://gif.ki679.cn/d/file/201807/25409d63a8eee5029879b9d1ee8db012.png" width=400px;>    
+<img src="http://gif.ki679.cn/d/file/201807/25409d63a8eee5029879b9d1ee8db012.png" width=250px;>    
   
 ### 每天更新各种Svip、翻墙、线报、撸实物、各种资源等等等。。。
   
@@ -61,4 +61,4 @@
 
 # 关于作者  
 <img src="https://mmbiz.qpic.cn/mmbiz_png/T2j1kJwdpLYyzETke1pTB6ZzDGj2A6uRTpPicauL7SgYuc4vEmYjrCVzaFJAZictgGhoKsRB5G4Wogo7G9uXSooQ/0?wx_fmt=png" width=400px;>  
-<img src="https://mmbiz.qpic.cn/mmbiz_jpg/T2j1kJwdpLbeahPBzd3LIESuPAbdUbt5rvOguQPWr59fA3DU63qbiclIwuqI3BsPhSoSsL3FmDGphEuwicbhPRlw/0?wx_fmt=jpeg" width=200px;>  
+<img src="https://mmbiz.qpic.cn/mmbiz_jpg/T2j1kJwdpLbeahPBzd3LIESuPAbdUbt5rvOguQPWr59fA3DU63qbiclIwuqI3BsPhSoSsL3FmDGphEuwicbhPRlw/0?wx_fmt=jpeg" width=400px;>  
