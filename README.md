@@ -60,5 +60,5 @@
 [私人专用：](http://www.anran.ga/ "私人专用：")http://www.anran.ga/
 
 # 关于作者  
-<img src="https://mmbiz.qpic.cn/mmbiz_png/T2j1kJwdpLYyzETke1pTB6ZzDGj2A6uRTpPicauL7SgYuc4vEmYjrCVzaFJAZictgGhoKsRB5G4Wogo7G9uXSooQ/0?wx_fmt=png" width=400px;>  
-<img src="https://mmbiz.qpic.cn/mmbiz_jpg/T2j1kJwdpLbeahPBzd3LIESuPAbdUbt5rvOguQPWr59fA3DU63qbiclIwuqI3BsPhSoSsL3FmDGphEuwicbhPRlw/0?wx_fmt=jpeg" width=400px;>  
+<img src="http://inews.gtimg.com/newsapp_bt/0/12056549449/641" width=400px;>  
+<img src="http://inews.gtimg.com/newsapp_bt/0/12056549448/641" width=400px;>  
