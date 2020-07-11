@@ -16,7 +16,7 @@
 
 > 序号越大，越新，百度云Svip天天更新的
 
-1. [百度网盘超级会员、百度网盘Svip账号分享](https://github.com/anran-world/Anranawsl/blob/master/1.%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98%E8%B6%85%E7%BA%A7%E4%BC%9A%E5%91%98%E3%80%81%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98Svip%E8%B4%A6%E5%8F%B7%E5%88%86%E4%BA%AB.md "百度网盘超级会员、百度网盘Svip账号分享")
+1. [百度网盘超级会员、百度网盘Svip账号分享、优酷vip、芒果vip、爱奇艺vip、哔哩哔哩vip、B站大会员、腾讯vip](https://github.com/anran-world/Anranawsl/blob/master/1.%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98%E8%B6%85%E7%BA%A7%E4%BC%9A%E5%91%98%E3%80%81%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98Svip%E8%B4%A6%E5%8F%B7%E5%88%86%E4%BA%AB.md "百度网盘超级会员、百度网盘Svip账号分享")
 
 2. [微信辅助一手货源](https://github.com/anran-world/Anranawsl/blob/master/2.%E5%BE%AE%E4%BF%A1%E8%BE%85%E5%8A%A9%E4%B8%80%E6%89%8B%E8%B4%A7%E6%BA%90 "微信辅助一手货源")
 
