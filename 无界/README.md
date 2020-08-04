@@ -2,7 +2,10 @@
 
 ### ssr
 
-1. ssr://dHc0Lmt2bXN1Yi54eXo6Mjc3MTQ6YXV0aF9hZXMxMjhfc2hhMTphZXMtMjU2LWNmYjpwbGFpbjpRa0ZtVWpWRS8/b2Jmc3BhcmFtPU5qSXlZekl4TkRJM01EYzFMbTFwWTNKdmMyOW1kQzVqYjIwPSZwcm90b3BhcmFtPU1UUXlOekEzTlRwQ1Z6Uk5aR0k9JnJlbWFya3M9NVkrdzVybSs2SW12NWIrRDU3cS9MZVM3bU9pMHVlUzlrK21xak9tcm1PbUFuK2U2ditpM3J5QXRJRE15TXpZNUlPV05sZWVycitXUG93PT0=
+1. ssr://OTEuMjA2LjkyLjM1OjM2MTA6b3JpZ2luOnJjNDpwbGFpbjpiRzVqYmk1dmNtY2dhMnM0Lz9vYmZzcGFyYW09JnJlbWFya3M9NUwtRTZMLWM1TGljUVEmZ3JvdXA9VEc1amJpNXZjbWM
+2. ssr://Mi41Ni4yNDAuMTA2OjM2MTA6b3JpZ2luOnJjNDpwbGFpbjpiRzVqYmk1dmNtY2dhMnM0Lz9vYmZzcGFyYW09JnJlbWFya3M9NUwtRTZMLWM1TGljUWcmZ3JvdXA9VEc1amJpNXZjbWM
+3. ssr://NDUuMTMwLjE0NS4xNTg6MzYxMDpvcmlnaW46cmM0OnBsYWluOmJHNWpiaTV2Y21jZ2EyczQvP29iZnNwYXJhbT0mcmVtYXJrcz01TC1FNkwtYzVMaWNRdyZncm91cD1URzVqYmk1dmNtYw
+4. ssr://OTEuMjA2LjkyLjM4OjM2MTA6b3JpZ2luOnJjNDpwbGFpbjpiRzVqYmk1dmNtY2dhMnM0Lz9vYmZzcGFyYW09JnJlbWFya3M9NUwtRTZMLWM1TGljUkEmZ3JvdXA9VEc1amJpNXZjbWM
 
 ### v2ray
 
@@ -19,3 +22,5 @@
 ### 自用机场分享
 
 [50个左右不限速，一直白嫖，持续更新](http://www.anran.ga/?cid=2&tid=3 "50个左右不限速，一直白嫖，持续更新")
+
+[私人教程整理（均自己实践而来！！！）](http://www.anran.ga/ "私人教程整理")
