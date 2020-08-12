@@ -1,6 +1,6 @@
 # 每天各种白嫖福利  
 
-<img src="http://gif.ki679.cn/d/file/201807/25409d63a8eee5029879b9d1ee8db012.png" width=250px;>    
+<img src="http://z.aisaiya.com/d/file/201807/25409d63a8eee5029879b9d1ee8db012.png" width=250px;>    
 
 ### 每天更新各种Svip、翻墙、线报、撸实物、各种资源等等等。。。
 
