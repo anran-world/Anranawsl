@@ -1,8 +1,12 @@
 # 今日更新
 
+### 订阅地址
+
+1. https://www.3kla.cn/subscribe/txt/asxsaxsaaxs.txt
+
 ### SS
 
-2. ss://YWVzLTI1Ni1jZmI6ZUlXMERuazY5NDU0ZTZuU3d1c3B2OURtUzIwMXRRMERAMTcyLjEwNC4xNjEuNTQ6ODA5OQ==
+1. ss://YWVzLTI1Ni1jZmI6ZUlXMERuazY5NDU0ZTZuU3d1c3B2OURtUzIwMXRRMERAMTcyLjEwNC4xNjEuNTQ6ODA5OQ==
 
 ### ssr
 
