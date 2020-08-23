@@ -1,16 +1,26 @@
-# 今日更新
+# 科学上网
 
-### 订阅地址
+### 每天分享科学上网（SS、SSR、V2ray）如对你有帮助,请给个`♥ Star`支持一下哦。
 
-1. https://www.3kla.cn/subscribe/txt/asxsaxsaaxs.txt
+---
+
+
 
 ### SS
 
-1. ss://YWVzLTI1Ni1jZmI6ZUlXMERuazY5NDU0ZTZuU3d1c3B2OURtUzIwMXRRMERAMTcyLjEwNC4xNjEuNTQ6ODA5OQ==
+1. ss://YWVzLTI1Ni1jZmI6ZUlXMERuazY5NDU0ZTZuU3d1c3B2OURtUzIwMXRRMERAMTcyLjEwNC4xMjcuMjA4OjgwOTk=
+2. ss://YWVzLTI1Ni1jZmI6ZUlXMERuazY5NDU0ZTZuU3d1c3B2OURtUzIwMXRRMERAMTcyLjEwNC4xNjEuNTQ6ODA5OQ==
+
+---
 
 ### ssr
 
-1. 
+1. ssr://NDUuMTM1LjEzNS4zNToyNTExOTpvcmlnaW46cmM0OnBsYWluOmJHNWpiaTV2Y21jZ1pUaHYvP29iZnNwYXJhbT0mcmVtYXJrcz01cGl2UVc1eVlXN2xrWUF1TVEmZ3JvdXA9ZDNkM0xtRnVjbUZ1TG1kaA
+2. ssr://NDUuMTM1LjEzNS4yMjE6MjUxMTk6b3JpZ2luOnJjNDpwbGFpbjpiRzVqYmk1dmNtY2daVGh2Lz9vYmZzcGFyYW09JnJlbWFya3M9NXBpdlFXNXlZVzdsa1lBdU1nJmdyb3VwPWQzZDNMbUZ1Y21GdUxtZGg
+3. ssr://NDUuMTM1LjEzNS4yMDk6MjUxMTk6b3JpZ2luOnJjNDpwbGFpbjpiRzVqYmk1dmNtY2daVGh2Lz9vYmZzcGFyYW09JnJlbWFya3M9NXBpdlFXNXlZVzdsa1lBdU13Jmdyb3VwPWQzZDNMbUZ1Y21GdUxtZGg
+4. ssr://NDUuMTM1LjEzNS4yNDoyNTExOTpvcmlnaW46cmM0OnBsYWluOmJHNWpiaTV2Y21jZ1pUaHYvP29iZnNwYXJhbT0mcmVtYXJrcz01cGl2UVc1eVlXN2xrWUF1TkEmZ3JvdXA9ZDNkM0xtRnVjbUZ1TG1kaA
+
+---
 
 ### v2ray
 
@@ -20,9 +30,10 @@
 
 3. vmess://ew0KICAidiI6ICIyIiwNCiAgInBzIjogIue+juWbvTciLA0KICAiYWRkIjogIjE0Mi40LjEwNC4yMjYiLA0KICAicG9ydCI6ICI0NDMiLA0KICAiaWQiOiAiYTIwNWY0YjYtMTM4Ni00NzY1LWI0NGEtNmIxYmJhNDdkNTM3IiwNCiAgImFpZCI6ICI2NCIsDQogICJuZXQiOiAid3MiLA0KICAidHlwZSI6ICJub25lIiwNCiAgImhvc3QiOiAid3d3LjAzNjQ1MjkxNi54eXoiLA0KICAicGF0aCI6ICIvZm9vdGVycyIsDQogICJ0bHMiOiAidGxzIg0KfQ==  
 
+---
 
 ### 自用机场分享
 
-[50个左右不限速，一直白嫖，持续更新](http://www.anran.ga/?cid=2&tid=3 "50个左右不限速，一直白嫖，持续更新")
+[50个左右不限速50ms，一直白嫖，持续更新](http://www.anran.ga/?cid=2&tid=3 "50个左右不限速，一直白嫖，持续更新")
 
 [私人教程整理（均自己实践而来！！！）](http://www.anran.ga/ "私人教程整理")
