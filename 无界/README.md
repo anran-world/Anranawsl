@@ -8,8 +8,7 @@
 
 ### SS
 
-1. ss://YWVzLTI1Ni1jZmI6ZUlXMERuazY5NDU0ZTZuU3d1c3B2OURtUzIwMXRRMERAMTcyLjEwNC4xMjcuMjA4OjgwOTk=
-2. ss://YWVzLTI1Ni1jZmI6ZUlXMERuazY5NDU0ZTZuU3d1c3B2OURtUzIwMXRRMERAMTcyLjEwNC4xNjEuNTQ6ODA5OQ==
+##### 2020-09-09订阅地址：https://www.3kla.cn/subscribe/txt/jiuhao.txt
 
 ---
 
