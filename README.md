@@ -33,7 +33,9 @@
      "全平台！！！免费看1080p.md")
 14. [bilibili大会员B站大会员免费共享](https://github.com/anran-world/Anranawsl/blob/master/bilibili%E5%A4%A7%E4%BC%9A%E5%91%98B%E7%AB%99%E5%A4%A7%E4%BC%9A%E5%91%98%E5%85%8D%E8%B4%B9%E5%85%B1%E4%BA%AB.md
      "bilibili大会员B站大会员免费共享.md")
-15. ` ♥ ` [高价任务更新，速取！！！](https://mp.weixin.qq.com/s?__biz=MzU5NDA1MzQ1OQ==&mid=2247490191&idx=3&sn=78615d8ac42103e114cecb1f5d300d94&chksm=fe064ab3c971c3a52497ad9c1966b36d9a6f144243678f313909dfa898ddd87d0fcb08b0fdf1&token=18226929&lang=zh_CN#rd "高价任务更新，速取！！！") ` ♥ `  
+15. [【大水】支付宝必中3-5r红包](https://3kla.cn/blog/1350.html "[大水]支付宝必中3-5r红包")
+16. [【 薅 羊 毛 】0.3+1+10](https://3kla.cn/blog/1378.html "全平台！！！免费看1080p.md")
+17. ` ♥ ` [高价任务更新，速取！！！](https://mp.weixin.qq.com/s?__biz=MzU5NDA1MzQ1OQ==&mid=2247490191&idx=3&sn=78615d8ac42103e114cecb1f5d300d94&chksm=fe064ab3c971c3a52497ad9c1966b36d9a6f144243678f313909dfa898ddd87d0fcb08b0fdf1&token=18226929&lang=zh_CN#rd "高价任务更新，速取！！！") ` ♥ `  
 
 # 自用工具合集
 
