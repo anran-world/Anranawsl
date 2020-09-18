@@ -1,5 +1,3 @@
-[TOC]
-
 
 
 <center><h1>共享账号协议</h1></center>
@@ -91,9 +89,7 @@
 
 <br>
 
-> ![img](https://p.pstatp.com/origin/137a500016b036a8d9033)
->
-> 
+> [点击查看](https://p.pstatp.com/origin/137a500016b036a8d9033)
 
 #### 3.用了旧版本居然偷偷升级
 
