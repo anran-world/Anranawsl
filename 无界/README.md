@@ -8,7 +8,7 @@
 
 ### SS
 
-##### 2020-09-16订阅地址：https://raw.githubusercontent.com/ssrsub/ssr/master/ss-sub
+##### 【2020-10-04】订阅地址：https://www.3kla.cn/subscribe/txt/sssss.txt
 
 ---
 
@@ -16,7 +16,7 @@
 
 ### ssr
 
-##### 2020-09-16订阅地址：https://raw.githubusercontent.com/ssrsub/ssr/master/ssrsub
+##### 【2020-09-16】订阅地址：https://raw.githubusercontent.com/ssrsub/ssr/master/ssrsub
 
 ---
 
@@ -24,7 +24,7 @@
 
 ### v2ray
 
-#### 2020-09-16订阅地址：https://raw.githubusercontent.com/ssrsub/ssr/master/v2ray
+##### 【2020-09-16】订阅地址：https://raw.githubusercontent.com/ssrsub/ssr/master/v2ray
 
 ---
 
