@@ -2,7 +2,7 @@
 
 <img src="http://z.aisaiya.com/d/file/201807/25409d63a8eee5029879b9d1ee8db012.png" width=250px;>    
 
-### 每天更新各种Svip、翻墙、线报、撸实物、各种资源等等等。。。
+### 每天更新各种Svip、翻墙、线报、撸实物、搞机教程、各种网盘资源等等等。。。
 
 有什么不懂的问题,欢迎留言,一起共同进步  
 
@@ -36,6 +36,7 @@
 15. [【大水】支付宝必中3-5r红包](https://3kla.cn/blog/1350.html "[大水]支付宝必中3-5r红包")
 16. [【 薅 羊 毛 】0.3+1+10](https://3kla.cn/blog/1378.html "全平台！！！免费看1080p.md")
 17. ` ♥ ` [高价任务更新，速取！！！](https://mp.weixin.qq.com/s?__biz=MzU5NDA1MzQ1OQ==&mid=2247490191&idx=3&sn=78615d8ac42103e114cecb1f5d300d94&chksm=fe064ab3c971c3a52497ad9c1966b36d9a6f144243678f313909dfa898ddd87d0fcb08b0fdf1&token=18226929&lang=zh_CN#rd "高价任务更新，速取！！！") ` ♥ `  
+18. ` ♥ ` [各种百度网盘资源更新]([https://github.com/anran-world/Anranawsl/tree/master/%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98%E8%B5%84%E6%BA%90%E5%88%86%E4%BA%AB](https://github.com/anran-world/Anranawsl/tree/master/百度网盘资源分享) "各种百度网盘资源更新")` ♥ `  
 
 # 自用工具合集
 
