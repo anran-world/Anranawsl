@@ -1,3 +1,5 @@
+# 失效不补，请及时【 取 存 】哦！！！！！！！
+
 # 每天各种白嫖福利、最新热剧、动漫的网盘资源
 
 <img src="http://z.aisaiya.com/d/file/201807/25409d63a8eee5029879b9d1ee8db012.png" width=250px;>    
