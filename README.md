@@ -1,4 +1,4 @@
-# 每天各种白嫖福利  
+# 每天各种白嫖福利
 
 <img src="http://z.aisaiya.com/d/file/201807/25409d63a8eee5029879b9d1ee8db012.png" width=250px;>    
 
@@ -57,6 +57,5 @@
 [私人专用：](http://www.anran.ga/ "私人专用：")http://www.anran.ga/
 
 # 关于作者  
-<img src="http://inews.gtimg.com/newsapp_bt/0/12056549449/641" width=400px;>  
-<img src="http://inews.gtimg.com/newsapp_bt/0/12056549448/641" width=400px;>  
+<img src="http://inews.gtimg.com/newsapp_bt/0/12056549449/641" width=400px;>  img src="http://inews.gtimg.com/newsapp_bt/0/12056549448/641" width=400px;>
 
