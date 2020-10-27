@@ -1,9 +1,5 @@
 # 失效不补，请及时【 取 存 】哦！！！！！！！
 
-# 每天各种白嫖福利、最新热剧、动漫的网盘资源
-
-<img src="http://z.aisaiya.com/d/file/201807/25409d63a8eee5029879b9d1ee8db012.png" width=250px;>    
-
 ### 每天更新各种Svip、翻墙、线报、撸实物、搞机教程、各种网盘资源等等等。。。
 
 有什么不懂的问题,欢迎留言,一起共同进步  
@@ -14,8 +10,9 @@
 
 #### 喜欢的话，欢迎`♥ Star`
 
+<br>
 
+<br>
 
-# 关于作者
+# [资源分享最新地址，点击前往](https://github.com/anran-world/Anranawsl/blob/master/1.%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98%E8%B6%85%E7%BA%A7%E4%BC%9A%E5%91%98%E3%80%81%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98Svip%E8%B4%A6%E5%8F%B7%E5%88%86%E4%BA%AB%E3%80%81%E4%BC%98%E9%85%B7vip%E3%80%81%E8%8A%92%E6%9E%9Cvip%E3%80%81%E7%88%B1%E5%A5%87%E8%89%BAvip%E3%80%81%E5%93%94%E5%93%A9%E5%93%94%E5%93%A9vip%E3%80%81B%E7%AB%99%E5%A4%A7%E4%BC%9A%E5%91%98%E3%80%81%E8%85%BE%E8%AE%AFvip.md)
 
-<center><br><br><img src="http://inews.gtimg.com/newsapp_bt/0/12056549449/641" width=400px;><br><br><br><img src="http://inews.gtimg.com/newsapp_bt/0/12056549448/641" width=400px;></center>  
