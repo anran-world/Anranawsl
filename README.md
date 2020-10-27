@@ -12,6 +12,12 @@
 
 #### 喜欢的话，欢迎`♥ Star`
 
+#### [博客地址：https://3kla.cn](https://3kla.cn/ "博客地址：")
+
+#### [超低价百度云：https://shop.3kla.cn](http://www.anran.ga/ "超低价百度云：")
+
+#### [超低价虚拟主机和域名：https://shop.3kla.cn](http://www.anran.ga/ "超低价百度云：")
+
 # 最近更新
 
 > 序号越大，越新，百度云Svip天天更新的
