@@ -1,6 +1,6 @@
 # 每天各种白嫖福利
 
-<img src="http://z.aisaiya.com/d/file/201807/25409d63a8eee5029879b9d1ee8db012.png" width=250px;>    
+<img src="https://mmbiz.qpic.cn/mmbiz_gif/T2j1kJwdpLb32Te4SwWIokfYbOsLx4PMwFLcXOXc0oejkrG5B39HE4ficFR8qUNzU1yd5iaA4D6qKkGp6CpIphcQ/0?wx_fmt=gif" width=100%;>    
 
 ### 每天更新各种Svip、翻墙、线报、撸实物、搞机教程、各种网盘资源等等等。。。
 
