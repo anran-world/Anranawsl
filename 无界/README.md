@@ -18,4 +18,4 @@ vmess://ew0KICAidiI6ICIyIiwNCiAgInBzIjogIumfqeWbvXzinIhUR0BzaGFyZWNlbnRyZSIsDQog
 
 #### 3. [ 私人教程整理（均自己实践而来！！！）](http://www.anran.ga/ "私人教程整理")
 
-![img](https://p.pstatp.com/origin/ffbe0002aca5179d3b03)
+![img](https://inews.gtimg.com/newsapp_bt/0/12726525045/641)
