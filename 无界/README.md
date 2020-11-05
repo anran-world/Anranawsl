@@ -2,25 +2,13 @@
 
 #### 每天分享科学上网（SS、SSR、V2ray）如对你有帮助,请给个`♥ Star`支持一下哦。
 
-### SS
-
-##### 【2020-10-28】订阅地址：https://www.3kla.cn/subscribe/txt/sssss.txt
-
-
-
 ### ssr
 
-##### 【2020-09-28】订阅地址：https://raw.githubusercontent.com/ssrsub/ssr/master/ssrsub
-
-
+ssr://NjkuMzAuMjAxLjgyOjgwOTc6b3JpZ2luOmFlcy0yNTYtY2ZiOnBsYWluOlpVbFhNRVJ1YXpZNU5EVTBaVFp1VTNkMWMzQjJPVVJ0VXpJd01YUlJNRVE9Lz9vYmZzcGFyYW09JnByb3RvcGFyYW09JnJlbWFya3M9NTctNzVhS1o1WVdhTWpnd0xqZ3o1NzZPNVp1OSZncm91cD01NzZPNVp1OQ==
 
 ### v2ray
 
-##### 【2020-09-28】订阅地址：https://www.3kla.cn/subscribe/txt/acsasaccs.txt
-
-##### 【2020-09-28】订阅地址：https://www.3kla.cn/subscribe/txt/acsasaccs.txthttps://raw.githubusercontent.com/ssrsub/ssr/master/v2ray
-
-
+vmess://ew0KICAidiI6ICIyIiwNCiAgInBzIjogIumfqeWbvXzinIhUR0BzaGFyZWNlbnRyZSIsDQogICJhZGQiOiAiMy4zNS4yMzUuMjQyIiwNCiAgInBvcnQiOiAiNDQzIiwNCiAgImlkIjogIjhhMzE1YTYwLTFkN2YtMTFlYi1hMzQ2LTAyMDAxYzgwMWE2YyIsDQogICJhaWQiOiAiMiIsDQogICJuZXQiOiAid3MiLA0KICAidHlwZSI6ICJub25lIiwNCiAgImhvc3QiOiAiIiwNCiAgInBhdGgiOiAiL3oxbXEydnBOLyIsDQogICJ0bHMiOiAiIg0KfQ==
 
 ### 自用机场分享
 
