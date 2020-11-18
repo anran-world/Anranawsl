@@ -1,4 +1,6 @@
-## 失效不补，请及时【 取 存 】哦！！！！！！！
+
+
+# 失效不补，请及时【 取 存 】哦！！！！！！！
 
 ### 公众号每天更新各种Svip、翻墙、线报、撸实物、搞机教程、各种网盘资源等等等。。。
 
@@ -10,17 +12,201 @@
 
 祝大家每天开心哦
 
-#### 喜欢的话，欢迎`♥ Star`
+### 喜欢的话，欢迎`♥ Star`
 
 <br>
 
-### 最新资源：
+[toc]
 
-##### 关注公众号，回复 9 ，获取最新资源，不限速，非百度网盘存储
+# 最新资源：需要非百度网盘存储的，请关注公众号，回复 9 ，获取最新资源，不限速，非百度网盘存储
 
-### 11.9资源
+## 11.18资源（取消不补）
 
-#### 韩剧👇
+### 韩剧👇
+
+Oh！三光别墅  
+https://pan.baidu.com/s/1mGvwksz1oBDdTqAXBvbhmQ  
+搜索（1080P完结）  
+https://pan.baidu.com/s/1efxJsR84ZXFC8Cl7iiOXgw  
+
+### 国剧👇
+
+隐秘而伟大  
+https://pan.baidu.com/s/1L1BLEkiEjetuBDZx6Eddzw  
+燕云台.超36  
+https://pan.baidu.com/s/13sXnfjnm_qd282yGcuf3Yw  
+鹿鼎记  
+https://pan.baidu.com/s/1zZKyGdDz-5Z1llFo0rGbSQ  
+瞄准（完结）  
+https://pan.baidu.com/s/138EW2VNbHKfKjGEfOxiBcQ  
+爱的厘米  
+https://pan.baidu.com/s/1786XKxotE_xyowvdoXTSiQ  
+追梦  
+https://pan.baidu.com/s/16_Mhdv96yYRlCd4mSol8jg  
+
+### 台剧  
+
+天巡者  
+https://pan.baidu.com/s/1qyQcfsdEoJvVy5Yt971dkw  
+记忆浮岛  
+https://pan.baidu.com/s/1AY9tqiznlA7TAT-obzB1-w  
+
+### 港剧👇
+
+TVB版使徒行者3（无删）  
+https://pan.baidu.com/s/1mU6YPTzCLEMFVFTb_aN65g  
+
+### 综艺👇
+
+理想家  
+https://pan.baidu.com/s/1tXS1IgaaGIyxNsqolLyNZg  
+
+### 动漫👇
+
+斗罗大陆  
+https://pan.baidu.com/s/1NbqmVH5XAndEnQJx0_D3cA  
+天官赐福  
+https://pan.baidu.com/s/10e0qmtKVRAviZqXJVHFE3Q  
+半妖的夜叉姬  
+https://pan.baidu.com/s/1dWbVxmoDE4zYBLHpJlyK7w  
+名侦探柯南  
+https://pan.baidu.com/s/1TS7jVHXwe-nvqoUk8efiyA  
+咒术回战  
+https://pan.baidu.com/s/1USsJAuH8synjtltoy2wI7Q  
+请问您今天要来点兔子吗？第三季  
+https://pan.baidu.com/s/1K09L20qsxYi4fpfWNiAC9A  
+大话之少年游  
+https://pan.baidu.com/s/1BP4X2oGJeNqh65r_n7WtAA  
+勇者斗恶龙 达伊的大冒险  
+https://pan.baidu.com/s/1e07gXTcWIijq8NdRYEJLRg  
+王之逆袭 意志的逆袭者  
+https://pan.baidu.com/s/1PlWn-oBYGdE7DiJEbFuhsA  
+铁路浪漫谭  
+https://pan.baidu.com/s/125_16A_dcuptkcZG_SNKCQ  
+成神之日  
+https://pan.baidu.com/s/1UCyxRkZ0VnRc1TMFDp3jWQ  
+战翼的希格德莉法  
+https://pan.baidu.com/s/1TE3ayqvQymQb6XrGuSJhCQ  
+Love Live! 虹咲学园校园偶像同好会  
+https://pan.baidu.com/s/1re1wCylbTvlN5xqUwNyLLQ  
+
+### 泰剧👇
+
+超凡少年毕业季/特长生2  
+https://pan.baidu.com/s/1TIvOvmmqXDCr2vuUJ6En6w  
+情梅竹马  
+https://pan.baidu.com/s/1GAUX7cv9ZTjcDhPzQ1lQQg  
+褪色的回忆  
+https://pan.baidu.com/s/1UZS8SG4eXDJvqOe5RON-Tw  
+
+### 欧美剧
+
+黑暗物质三部曲2  
+https://pan.baidu.com/s/1IcwamO_aefX8es2srMQmDw  
+小斧子  
+https://pan.baidu.com/s/1t3bLBugQFZpomti94JfsZw  
+冰雪暴4  
+https://pan.baidu.com/s/1cM-_TrU7fNybiDNQjYEU-Q  
+行尸之惧6  
+https://pan.baidu.com/s/1lWKeCuHWFztf_XYvAOKn0Q  
+西班牙公主2  
+https://pan.baidu.com/s/1cFDZEvP4lsVcIqygFNFOmA  
+无所作为  
+https://pan.baidu.com/s/1k8LZ4g76mCwD15jIsmeqCw  
+
+### 日剧👇
+
+极主夫道  
+https://pan.baidu.com/s/1M1ut6FufYeE_q_LV08XyDg  
+危险的维纳斯  
+https://pan.baidu.com/s/1CGIpf3p9HBBCxWZs76u7fw  
+阎魔堂沙罗的推理奇谭  
+https://pan.baidu.com/s/1f-Ft8pIojlp4BF53Y9Swbg  
+所以我化妆（完结）  
+https://pan.baidu.com/s/1iTj7ktK45HR4vUO4VuOYNQ  
+草莓之歌  
+https://pan.baidu.com/s/1uA_rB9CIaWLPk5SlLwpCnQ  
+
+### 广播剧👇
+
+给校草当假男友的日子第二季（07）  
+https://pan.baidu.com/s/18EUfFuHOdLajfXybLcXbQA  
+他们都说我遇到了未知生物（04）  
+https://pan.baidu.com/s/1XlVafe8N9kxrM83o6pUVYA  
+漂亮朋友（05完结）  
+https://pan.baidu.com/s/1BsmzJqbGPBvF3tmSym6Csg  
+地尽头（花絮）  
+https://pan.baidu.com/s/1Q8gkECuV05Sn4GbwNAtLaQ  
+FOG（花絮04）  
+https://pan.baidu.com/s/1Yb_bQzOodEAEQ63k9D2Jug  
+配音研究院（01番外）  
+https://pan.baidu.com/s/10ewD_gLJ4A6Wn49zV9XjGQ  
+百科情书（01）  
+https://pan.baidu.com/s/16n1xwKvJNdQL4UMCbQQiGQ  
+合同制奴才（01）  
+https://pan.baidu.com/s/15l8f7omDZfuP_hOJlqmhxQ  
+浮华圈子（声展）  
+https://pan.baidu.com/s/1VPQvhqGE1n9QnNGLtSP7Ug  
+穿越之流氓攻（01）  
+https://pan.baidu.com/s/13DDvtS64EfDLJ5IaLxnMqQ  
+修仙太难了（05）  
+https://pan.baidu.com/s/1OyZswMR0K6Eb1b6M-0yIeA  
+今天只想你一次（ED）  
+https://pan.baidu.com/s/19CsgOlMXhGBMllKijY0XQg  
+恋爱法则（ED）  
+https://pan.baidu.com/s/1f0s_zgHq2z9vnXitN6tUIw  
+莫名其妙 （上期）  
+https://pan.baidu.com/s/1R9X-1Orr4J6C0aNFdxFKuQ  
+我的男友是校花（05）  
+https://pan.baidu.com/s/1hqsFCPZ3R397CrLNfn5zZw  
+神棍（05）  
+https://pan.baidu.com/s/172m8AB31mOBk34ZTM989bA  
+爱似钩沉（01）  
+https://pan.baidu.com/s/1L-dmlA9-uZ66vPe1CL82wQ  
+今日宜喜欢你  
+https://pan.baidu.com/s/1tDQ-rqx3kBlgRYScBRquHw  
+捌年有幸 全一期  
+https://pan.baidu.com/s/1DE-aLX6G4y7HxMrU3AtBYw  
+情花葬 全一期  
+https://pan.baidu.com/s/1mYLnE2yswG-Wv2kC4-Sbcw  
+竹马学霸我学渣 全一期  
+https://pan.baidu.com/s/15sAyVPuQgtYqRA0-2TSQOg  
+小白易凡 全一期  
+https://pan.baidu.com/s/1g4kJ2cAaoark2C7WZtIpuQ  
+南来北往 全一期  
+https://pan.baidu.com/s/1InQrsoWlOhKAru0HqWUpAQ  
+念念不忘 全一期  
+https://pan.baidu.com/s/1ZKINQ-65TMj1cOsIvY3pMA  
+逐罪 全一期  
+https://pan.baidu.com/s/1bgOv3C8fNVHKICGXW5637g  
+有声剧 奈何男妻太倾城  
+https://pan.baidu.com/s/1FhiSowWfi1K3277FveGn2w  
+有声剧 骷髅幻戏图  
+https://pan.baidu.com/s/11-NLgAP_DcbJW1PMI9ENFQ  
+
+### 小说【11.16】
+
+https://pan.baidu.com/s/1dg-jDWB-4eF4AeXZeC8-VQ  
+
+### 姜子牙.1080P.115网盘
+
+https://115.com/s/sw31qks36r1?password=u033&  
+访问码：u033  
+姜子牙.1080P.迅雷云  
+https://pan.xunlei.com/s/VMMGwiA2hHF0EwUOEoVOxCDPA1 提取码:1gM8  
+不提供度盘，连续上传3次，次次不出半小时直接和谐成净网片  
+
+### 花木兰.1080国语
+
+https://pan.baidu.com/s/1JDy6ofFmyYMcIoTjgOgYng  
+
+<br>
+
+---
+
+## 11.15资源
+
+### 韩剧👇
 
 蛟龙飞天  
 https://pan.baidu.com/s/1WgpfLqCrdupid3Vp3Cixqw  
@@ -31,7 +217,7 @@ https://pan.baidu.com/s/1cXhUGW3obJyR_vMShE8YDw
 搜索  
 https://pan.baidu.com/s/1efxJsR84ZXFC8Cl7iiOXgw  
 
-#### 国剧👇
+### 国剧👇
 
 隐秘而伟大  
 https://pan.baidu.com/s/1Dfl_-jCa0lpGwDmjWDQorA  
@@ -53,14 +239,14 @@ https://pan.baidu.com/s/1xZJAefk9GACvr4rOlHNXQw
 云端.全两季4K  
 https://pan.baidu.com/s/11xmW1Xnt2jA9pFsxfFKRNQ  
 
-#### 港剧👇
+### 港剧👇
 
 馋上你  
 https://pan.baidu.com/s/1T_kzWU1eRPt5GbWA1r8QZg  
 因为我喜欢你  
 https://pan.baidu.com/s/1NQY1kup_aw-t6Ea1YkGKzw  
 
-#### 综艺👇
+### 综艺👇
 
 演员请就位2  
 https://pan.baidu.com/s/1xc_3PtNy13G6aoU9sCyq0w  
@@ -95,7 +281,7 @@ https://pan.baidu.com/s/1oeGkDTCGoWUMLB-aclpKPA
 舞蹈风暴2  
 https://pan.baidu.com/s/15I1IOJVxVGJe6tvjIY4rUA  
 
-#### 动漫👇
+### 动漫👇
 
 斗罗大陆  
 https://pan.baidu.com/s/1NbqmVH5XAndEnQJx0_D3cA  
@@ -124,7 +310,7 @@ https://pan.baidu.com/s/1TE3ayqvQymQb6XrGuSJhCQ
 Love Live! 虹咲学园校园偶像同好会  
 https://pan.baidu.com/s/1re1wCylbTvlN5xqUwNyLLQ  
 
-##### 泰剧👇  
+### 泰剧👇
 
 朋友圈2  
 https://pan.baidu.com/s/123g6x3Zu2Fqg6Uubjs6qwg  
@@ -133,7 +319,8 @@ https://pan.baidu.com/s/1qSFgyOCQJbtKgFSRmaBk2Q
 褪色的回忆  
 https://pan.baidu.com/s/1VNgTCljBMzd3U-XHgGIvwg  
 
-##### 欧美剧  
+### 欧美剧
+
 战士2  
 https://pan.baidu.com/s/1Ee_Cu01gPfQgOaEOuNcNBQ  
 太空先锋  
@@ -141,7 +328,7 @@ https://pan.baidu.com/s/1M5bURU6daF3EiEVTo0-ZRg
 爱情不设限（完结）
 https://pan.baidu.com/s/1l701nhOjUhgT3HIjCbS1pQ  
 
-##### 日剧👇
+### 日剧👇
 
 鲁邦之女2  
 https://pan.baidu.com/s/1mveTsxgGwG7Gy-PJGQ8IGg  
@@ -160,7 +347,7 @@ https://pan.baidu.com/s/17LwBh1gNlqc-h2hJrJlQmw
 24 Japan  
 https://pan.baidu.com/s/1BllRcO3PqcNBmuJZ2i4uow  
 
-##### 广播剧👇  
+### 广播剧👇
 
 FOG（12）
 https://pan.baidu.com/s/1l06xA8BVBwxygzZoReq7UA  
@@ -247,18 +434,19 @@ https://pan.baidu.com/s/18khbovYjhAe67vhAHKnzVA
 【有声剧】共24部更新，1部完结  
 https://pan.baidu.com/s/1VT0f2d1g2tlEaOnDInfAzA  
 
-##### 天官赐福.漫画更42  
+### 天官赐福.漫画更42
+
 https://pan.baidu.com/s/18CBBuk-XLdntO5WgKKykWA  
 
-##### 小说【11.07】
+### 小说【11.07】
 
 https://pan.baidu.com/s/19d-BysANo-JanPPu2d3Cmg  
 
 <br>
 
-### 11.10资源
+## 11.10资源
 
-#### 韩剧👇
+### 韩剧👇
 
 蛟龙飞天  
 https://pan.baidu.com/s/1WgpfLqCrdupid3Vp3Cixqw  
@@ -269,7 +457,7 @@ https://pan.baidu.com/s/1cXhUGW3obJyR_vMShE8YDw
 搜索  
 https://pan.baidu.com/s/1efxJsR84ZXFC8Cl7iiOXgw  
 
-#### 国剧👇
+### 国剧👇
 
 隐秘而伟大  
 https://pan.baidu.com/s/1Dfl_-jCa0lpGwDmjWDQorA  
@@ -291,14 +479,14 @@ https://pan.baidu.com/s/1xZJAefk9GACvr4rOlHNXQw
 云端.全两季4K  
 https://pan.baidu.com/s/11xmW1Xnt2jA9pFsxfFKRNQ  
 
-#### 港剧👇
+### 港剧👇
 
 馋上你  
 https://pan.baidu.com/s/1T_kzWU1eRPt5GbWA1r8QZg  
 因为我喜欢你  
 https://pan.baidu.com/s/1NQY1kup_aw-t6Ea1YkGKzw  
 
-#### 综艺👇
+### 综艺👇
 
 演员请就位2  
 https://pan.baidu.com/s/1xc_3PtNy13G6aoU9sCyq0w  
@@ -333,7 +521,7 @@ https://pan.baidu.com/s/1oeGkDTCGoWUMLB-aclpKPA
 舞蹈风暴2  
 https://pan.baidu.com/s/15I1IOJVxVGJe6tvjIY4rUA  
 
-#### 动漫👇
+### 动漫👇
 
 斗罗大陆  
 https://pan.baidu.com/s/1NbqmVH5XAndEnQJx0_D3cA  
@@ -362,7 +550,7 @@ https://pan.baidu.com/s/1TE3ayqvQymQb6XrGuSJhCQ
 Love Live! 虹咲学园校园偶像同好会  
 https://pan.baidu.com/s/1re1wCylbTvlN5xqUwNyLLQ  
 
-##### 泰剧👇  
+### 泰剧👇
 
 朋友圈2  
 https://pan.baidu.com/s/123g6x3Zu2Fqg6Uubjs6qwg  
@@ -371,7 +559,7 @@ https://pan.baidu.com/s/1qSFgyOCQJbtKgFSRmaBk2Q
 褪色的回忆  
 https://pan.baidu.com/s/1VNgTCljBMzd3U-XHgGIvwg  
 
-##### 欧美剧  
+### 欧美剧
 
 战士2  
 https://pan.baidu.com/s/1Ee_Cu01gPfQgOaEOuNcNBQ  
@@ -380,7 +568,7 @@ https://pan.baidu.com/s/1M5bURU6daF3EiEVTo0-ZRg
 爱情不设限（完结）
 https://pan.baidu.com/s/1l701nhOjUhgT3HIjCbS1pQ  
 
-##### 日剧👇
+### 日剧👇
 
 鲁邦之女2  
 https://pan.baidu.com/s/1mveTsxgGwG7Gy-PJGQ8IGg  
@@ -399,7 +587,7 @@ https://pan.baidu.com/s/17LwBh1gNlqc-h2hJrJlQmw
 24 Japan  
 https://pan.baidu.com/s/1BllRcO3PqcNBmuJZ2i4uow  
 
-##### 广播剧👇  
+### 广播剧👇
 
 FOG（12）
 https://pan.baidu.com/s/1l06xA8BVBwxygzZoReq7UA  
@@ -486,12 +674,9 @@ https://pan.baidu.com/s/18khbovYjhAe67vhAHKnzVA
 【有声剧】共24部更新，1部完结  
 https://pan.baidu.com/s/1VT0f2d1g2tlEaOnDInfAzA  
 
-##### 天官赐福.漫画更42  
+## 11.5资源
 
-https://pan.baidu.com/s/18CBBuk-XLdntO5WgKKykWA  
-
-### 11.5资源  
-#### 韩剧👇
+### 韩剧👇
 
 九尾狐传  
 https://pan.baidu.com/s/1_F1TQQ8a1t5x2lPRsLK1uQ  
@@ -511,7 +696,7 @@ https://pan.baidu.com/s/1arr3hurh2JjaAt4IexR6_A
 https://pan.baidu.com/s/1NgHOAJQf4L6ZU2LIGDg9EQ  
 私生活  
 https://pan.baidu.com/s/1_wO2H5IZKGfsQQpdzx-2_A  
-#### 国剧👇
+### 国剧👇
 
 黑色灯塔.超前至22  
 https://pan.baidu.com/s/1h1ZRcLzuu-WyTIwdf30f9Q  
@@ -537,7 +722,7 @@ https://pan.baidu.com/s/1rm5He92GAKoUmNDIVZSmhQ
 https://pan.baidu.com/s/1Fy88NPEJAI7ysnYoZStmdw  
 越过山丘  
 https://pan.baidu.com/s/1TMNiJ2y5nqrEfXCFedbSKw  
-#### 港剧👇
+### 港剧👇
 
 盲侠大律师  
 https://pan.baidu.com/s/1hf63SIvu_JfBbs8dxyf5MA  
@@ -547,7 +732,8 @@ https://pan.baidu.com/s/1CwcOH-OI7-OkuG3w_lOE6g
 https://pan.baidu.com/s/1U82jxlCRMFT1Xkigm9svDg  
 木棘证人  
 https://pan.baidu.com/s/1wihET8N8pzn0tPswIh3Nbw  
-#### 综艺👇
+
+### 综艺👇
 
 令人心动的offer2  
 https://pan.baidu.com/s/1ausKGNgHmOqM0MxNtMeJYw  
@@ -564,7 +750,7 @@ https://pan.baidu.com/s/1q3tNQ60Zs0dxSELm-AQvoA
 德云斗笑社.共享.拿完退  
 https://pan.baidu.com/s/4bvPCxB5  
 
-#### 动漫👇
+### 动漫👇
 
 大贵族  
 https://pan.baidu.com/s/1WFIlI3EBEZapTrd2DpwGuQ  
@@ -583,7 +769,8 @@ https://pan.baidu.com/s/1bhqbzUxwYnZARc--1zZcMg
 月歌 第二季  
 https://pan.baidu.com/s/1Va9H7XFKfg15z13IwjN-xg  
 
-##### 泰剧👇  
+### 泰剧👇
+
 男校风云  
 https://pan.baidu.com/s/10uiRl67DSleyaCwF53s4PA  
 爱的定义  
@@ -592,7 +779,8 @@ https://pan.baidu.com/s/1UZFq5G3MozpErZbRfVsveQ
 https://pan.baidu.com/s/1FY1YB0P67PlK9xUZw3guSA  
 毕业阵痛记  
 https://pan.baidu.com/s/18EVd2Dks8GNBvGG8_VuIhw  
-##### 日剧👇  
+### 日剧👇
+
 毛骨悚然撞鬼经-2020秋季特别篇  
 https://pan.baidu.com/s/1J4VIntd9pJ4dcmCRyqe5Ew  
 消除老师的方程式  
@@ -603,7 +791,8 @@ https://pan.baidu.com/s/1V8a2Qs1klxzed0GaUB8r6w
 https://pan.baidu.com/s/1Y-9gIuJkyZ2rwqHuNvZZmA  
 单恋美食家日记  
 https://pan.baidu.com/s/10gREEmgIS9CjdoxVHnvq7Q  
-##### 广播剧👇  
+### 广播剧👇
+
 图灵密码第二季（02）  
 https://pan.baidu.com/s/1kI05dKhq9MAbXh8-OIz6Mg  
 解药（08）  
@@ -653,7 +842,7 @@ https://pan.baidu.com/s/1d-3FzKElQ6tZZuOBZJGJdQ
 战疫2020之我是医生  
 https://pan.baidu.com/s/1GEl8o6HOkHX1EWnDJAYQWw  
 
-##### 小说【11.04】
+### 小说【11.04】
 
 https://pan.baidu.com/s/1wbOTqTntoSGamN8et0Sf1w  
 https://pan.baidu.com/s/10Ymi54yQaPLTNMqeKNiIZQ    
