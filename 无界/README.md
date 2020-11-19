@@ -1,6 +1,10 @@
-# 科学上网
+# 科学上网(2020-11-19)
 
 #### 每天分享科学上网（SS、SSR、V2ray）如对你有帮助,请给个`♥ Star`支持一下哦。
+
+### ss
+
+1. ss://YWVzLTI1Ni1jZmI6ZUlXMERuazY5NDU0ZTZuU3d1c3B2OURtUzIwMXRRMERANDUuMzMuMTA0LjE2Mjo4MDk5
 
 ### ssr
 
@@ -8,7 +12,8 @@
 
 ### v2ray
 
-1. vmess://eyJ2IjoiMiIsInBzIjoi5pel5pysIGFucmFuLmdhIiwiYWRkIjoiNTIuMTk0LjI0OC4yNDkiLCJwb3J0IjoxMzg0OCwiaWQiOiJlM2UzMTUwYi1jZTQ3LTQ4OWMtODNmOS01MmExMmQ5NTJhYTUiLCJhaWQiOjAsIm5ldCI6IndzIiwidHlwZSI6Im5vbmUiLCJob3N0IjoiIiwicGF0aCI6Ii9kd24iLCJ0bHMiOiIifQ
+1. vmess://eyJ2IjoiMiIsInBzIjoi6I235YWw44CQ572R56uZ77yaYW5yYW4uZ2HjgJHlhbPms6jlhazkvJflj7fvvJpPTUdB77yM6Ziy5q2i5aSx6IGUIiwiYWRkIjoiMTU0Ljg0LjEuMTQwIiwicG9ydCI6NTQ2NzEsImlkIjoiMmE3MzQ5ZDYtOTk0YS00MzRiLTk1ODktYzAwMjA2ODVlNTI4IiwiYWlkIjo2NCwibmV0IjoidGNwIiwidHlwZSI6Im5vbmUiLCJob3N0IjoiIiwicGF0aCI6Ii8iLCJ0bHMiOiIifQ
+2. vmess://eyJ2IjoiMiIsInBzIjoi5pel5pysIGFucmFuLmdhIiwiYWRkIjoiNTIuMTk0LjI0OC4yNDkiLCJwb3J0IjoxMzg0OCwiaWQiOiJlM2UzMTUwYi1jZTQ3LTQ4OWMtODNmOS01MmExMmQ5NTJhYTUiLCJhaWQiOjAsIm5ldCI6IndzIiwidHlwZSI6Im5vbmUiLCJob3N0IjoiIiwicGF0aCI6Ii9kd24iLCJ0bHMiOiIifQ
 
 ### 自用机场分享
 
