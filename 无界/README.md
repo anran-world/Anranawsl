@@ -8,11 +8,11 @@
 
 ### v2ray
 
-1. vmess://ew0KICAidiI6ICIyIiwNCiAgInBzIjogIummmea4r/Cfh63wn4ewfOWFrOS8l+WPt++8mk9NR0EiLA0KICAiYWRkIjogIjE2OC42My4yMDUuMTk5IiwNCiAgInBvcnQiOiAiNDEwIiwNCiAgImlkIjogIjhjYzcyMWNkLTM0OWQtMzc5OC04ZjE1LTJlYzkzODYzNDEzMyIsDQogICJhaWQiOiAiMiIsDQogICJuZXQiOiAid3MiLA0KICAidHlwZSI6ICJub25lIiwNCiAgImhvc3QiOiAid3d3LmJpbmcuY29tIiwNCiAgInBhdGgiOiAiL3YycmF5IiwNCiAgInRscyI6ICIiDQp9
+1. vmess://eyJ2IjoiMiIsInBzIjoi5pel5pysIGFucmFuLmdhIiwiYWRkIjoiNTIuMTk0LjI0OC4yNDkiLCJwb3J0IjoxMzg0OCwiaWQiOiJlM2UzMTUwYi1jZTQ3LTQ4OWMtODNmOS01MmExMmQ5NTJhYTUiLCJhaWQiOjAsIm5ldCI6IndzIiwidHlwZSI6Im5vbmUiLCJob3N0IjoiIiwicGF0aCI6Ii9kd24iLCJ0bHMiOiIifQ
 
 ### 自用机场分享
 
-#### 1. [新上线，全网白嫖机场汇总网站，持续更新中](https://shop.3kla.cn/?cid=5&tid=44 "新上线，全网白嫖机场汇总网站，持续更新中")
+#### 1. [新上线，全网白嫖机场汇总网站，持续更新中](https://shop.3kla.cn/?cid=5&tid=44 "新上线，全网白嫖机场汇总网站，持续更新中")：几十个亲自测试的，均不限速、超低延迟，一直更新
 
 #### 2. [最新不限速50ms，一直白嫖，持续更新](https://shop.3kla.cn/?cid=5&tid=1 "50个左右不限速，一直白嫖，持续更新")
 
