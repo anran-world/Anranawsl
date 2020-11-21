@@ -18,11 +18,176 @@
 
 ### 网盘资源群：
 
-![image-20201121201037258](https://p.pstatp.com/origin/1379200023fed008e5077)
+<img src="https://p.pstatp.com/origin/1379200023fed008e5077" style="width:400px;">
 
-> 非百度网盘存储的资源：请关注公众号，回复 9 ，获取最新资源，不限速，非百度网盘存储
+> ==非百度网盘存储的资源：请关注公众号，回复 9 ，获取最新资源，不限速，非百度网盘存储==
+
+## 11.21资源（取消不补）
+
+### 韩剧👇
+
+哆哆嗖嗖啦啦嗖   
+https://pan.baidu.com/s/1Kjlrllyq30jSCbFHo9Eozw  
+爱我的间谍  
+https://pan.baidu.com/s/13EltUxH-AyZw93TGWhLaBQ  
+私生活  
+https://pan.baidu.com/s/1AJNVOkQFzf-zTmfApmHw9w  
+
+### 国剧👇
+
+狼殿下（完结）
+https://pan.baidu.com/s/1r2w7ulIHDrXtAeEtISlVqA   
+狼殿下全集1080压缩版  
+https://pan.baidu.com/s/1hFaU_E0XSXquTtMKcgTSlA   
+提取码：u203   
+亲爱的麻洋街.超（完结）  
+全集1080无水印  
+https://pan.baidu.com/s/1_ujhqc2PTsMJ7q8f40xZJw   
+兄台请留步  
+https://pan.baidu.com/s/1mrY3nwxBleDzu2OeIn6QAg   
+最好的时代.DVD版  
+https://pan.baidu.com/s/1q2sS2bGfWcNUE7DyEcqOmg  
+燕云台.超42  
+https://pan.baidu.com/s/1L5yy-KYc1etCq3_qX2dEBA   
+鹿鼎记（含陈小春版）  
+https://pan.baidu.com/s/1lTecl0GCNMTJ2AY5LYgaeA   
+好想和你在一起  
+https://pan.baidu.com/s/1kV1UCkBcdnWvMi0wjo9dzg   
+最初的相遇，最后的别离  
+https://pan.baidu.com/s/1HhjwA9hZh-C_2_vTv2LLbQ   
+我有特殊沟通技巧  
+https://pan.baidu.com/s/1RnIf4s_z0BN9zr1jzf_Z3A  
+青春创世纪  
+https://pan.baidu.com/s/13fZaJkYjeD4A0qJ1BBEl6Q   
+黑色灯塔.超1080无水印全集+彩蛋  
+https://pan.baidu.com/s/1Xsfvj0ZcDujefh_YaVYi8A   
+隐秘而伟大  
+https://pan.baidu.com/s/1Zjhir85PbyLhvjwb6VBpng   
+棋魂  
+https://pan.baidu.com/s/1sye0RRr7H36j1sm_zGXRTQ   
+爱的厘米  
+https://pan.baidu.com/s/1pQzRhp-LfGkwz00bijvzqw  
+
+### 港剧
+
+TVB版盲侠大律师/踩过界Ⅱ（无删）    
+https://pan.baidu.com/s/118ptvIKMPPWgs-CJtFjr3A   
+TVB版使徒行者3（无删）  
+https://pan.baidu.com/s/1mU6YPTzCLEMFVFTb_aN65g  
+暖男爸爸  
+https://pan.baidu.com/s/1U82jxlCRMFT1Xkigm9svDg  
+非凡三侠.全6集  
+https://pan.baidu.com/s/1NEcs0iopfFJdqkADdJEbIw 
+
+### 台剧👇
+
+粉红色时光  
+https://pan.baidu.com/s/1Gdn8tJ2BkMlIDYcJkp22OA   
+
+### 综艺👇
+
+明星大侦探互动衍生2之目标人物
+（更新纯享版+超前付费番外）    
+https://pan.baidu.com/s/1eX606AWRkk0WpM309JEQYw   
+名侦探学院3  
+https://pan.baidu.com/s/1ndrJH17CQNMZ7ntpBiI0YQ  
+
+ 早餐中国3  
+https://pan.baidu.com/s/1Boc3gvuOngp7uvzFaJR3ig   
+非日常派对  
+https://pan.baidu.com/s/1aJ4kTiJBlGvy6Gip7-OT_w   
+姐姐的爱乐之程（抢鲜版）  
+https://pan.baidu.com/s/1BcXCCnobhKW5OfIikbTdRw   
+女儿们的恋爱3（plus）  
+https://pan.baidu.com/s/1H-ded3OH-JpJyl9dfUen2g   
+小巨人运动会  
+https://pan.baidu.com/s/1jO8pXts9GroQm-DIhasZfw   
+幸福三重奏3  
+https://pan.baidu.com/s/18bWKYsx9-s54YphDtEJg2w   
+补令人心动的offer1-2  
+https://pan.baidu.com/s/1hjdQMkVKJSviJvwT3n4MKw   
+
+### 动漫👇
+
+秦时明月之沧海横流  
+https://pan.baidu.com/s/1LSyV-0Fb8YYn4tdtDvCW1g   
+独步逍遥  
+https://pan.baidu.com/s/1OFKQoXHbVnf3V5eM32OtYA   
+我家大师兄是个反派  
+https://pan.baidu.com/s/1snfJXoB7hQSxuZNjG7fdYQ   
+强袭魔女 通往柏林之路  
+https://pan.baidu.com/s/13MyvTvUuH4oIhfkkWnn_Qw   
+小碧蓝幻想！  
+https://pan.baidu.com/s/1ayW_DG7ZoFBSYk8G1xz9IA   
+全员恶玉  
+https://pan.baidu.com/s/1hFpanWeGWBTDOLn5BKxLnw   
+
+### 泰剧👇
+
+以你的心诠释我的爱（完结）  
+https://pan.baidu.com/s/1NS0l32Z_jutzziR9Ti5gtQ  
+谁的青春不乱爱  
+https://pan.baidu.com/s/1Sf1z4lYlOA4suYHKu27VTA   
+补不期而爱2.全集  
+https://pan.baidu.com/s/1c5GZvxieABjufrC6njedBw   
+嫉妒的密码  
+https://pan.baidu.com/s/1_mkq6W2orb0LLY2-vrLUZA   
+
+### 欧美剧
+
+终生2  
+https://pan.baidu.com/s/1-MOau8FwGvRje3vkGZ8xQA   
+星际迷航：发现号3  
+https://pan.baidu.com/s/1emhTQY7kmFyYd06ASQa0ZA   
+芝加哥警署8  
+https://pan.baidu.com/s/1jHYTt4Sdk8NGfwAkchohWA   
+联邦调查局：通缉要犯2  
+https://pan.baidu.com/s/128Y7kcNXW2lO4j3OOkr5zw  
+
+### 日剧👇
+
+一亿日元的告别（完结）  
+https://pan.baidu.com/s/1oMDKTIXWbyMIkME6btvgWA   
+共演NG  
+https://pan.baidu.com/s/1dqSigdSGUQB8oBRQr6frqw   
+单恋美食家日记  
+https://pan.baidu.com/s/1k8lVpAXOD8ZbPH7K_Kzivg   
+这份爱要加热吗  
+https://pan.baidu.com/s/12Wl5BOJ-Bu99uFuhwHeNYQ   
+姐姐的恋人  
+https://pan.baidu.com/s/1f9KHSJ6URhnNWc1yzcYCVg   
+帅哥选举  
+https://pan.baidu.com/s/1q1YxLtxmqPKxvJrYLEh5Kg      
+17.3关于性（完结）     
+https://pan.baidu.com/s/1LQJoriuEbs88vYQj0cFj0Q         
+远程恋爱    
+https://pan.baidu.com/s/1SvC8VjObY4qYUVVw1sX4Ew    
+
+### 广播剧👇
+
+ 
+
+### 小说【11.16】
+
+https://pan.baidu.com/s/1dg-jDWB-4eF4AeXZeC8-VQ  
+
+### 姜子牙.1080P.115网盘
+
+https://115.com/s/sw31qks36r1?password=u033&  
+访问码：u033  
+姜子牙.1080P.迅雷云  
+https://pan.xunlei.com/s/VMMGwiA2hHF0EwUOEoVOxCDPA1 提取码:1gM8  
+不提供度盘，连续上传3次，次次不出半小时直接和谐成净网片  
+
+### 花木兰.1080国语
+
+https://pan.baidu.com/s/1JDy6ofFmyYMcIoTjgOgYng  
+
+<br>
 
 ## 11.18资源（取消不补）
+
+
 
 ### 韩剧👇
 
@@ -131,76 +296,68 @@ https://pan.baidu.com/s/1uA_rB9CIaWLPk5SlLwpCnQ
 
 ### 广播剧👇
 
-给校草当假男友的日子第二季（07）  
-https://pan.baidu.com/s/18EUfFuHOdLajfXybLcXbQA  
-他们都说我遇到了未知生物（04）  
-https://pan.baidu.com/s/1XlVafe8N9kxrM83o6pUVYA  
-漂亮朋友（05完结）  
-https://pan.baidu.com/s/1BsmzJqbGPBvF3tmSym6Csg  
-地尽头（花絮）  
-https://pan.baidu.com/s/1Q8gkECuV05Sn4GbwNAtLaQ  
-FOG（花絮04）  
-https://pan.baidu.com/s/1Yb_bQzOodEAEQ63k9D2Jug  
-配音研究院（01番外）  
-https://pan.baidu.com/s/10ewD_gLJ4A6Wn49zV9XjGQ  
-百科情书（01）  
-https://pan.baidu.com/s/16n1xwKvJNdQL4UMCbQQiGQ  
-合同制奴才（01）  
-https://pan.baidu.com/s/15l8f7omDZfuP_hOJlqmhxQ  
-浮华圈子（声展）  
-https://pan.baidu.com/s/1VPQvhqGE1n9QnNGLtSP7Ug  
-穿越之流氓攻（01）  
-https://pan.baidu.com/s/13DDvtS64EfDLJ5IaLxnMqQ  
-修仙太难了（05）  
-https://pan.baidu.com/s/1OyZswMR0K6Eb1b6M-0yIeA  
-今天只想你一次（ED）  
-https://pan.baidu.com/s/19CsgOlMXhGBMllKijY0XQg  
-恋爱法则（ED）  
-https://pan.baidu.com/s/1f0s_zgHq2z9vnXitN6tUIw  
-莫名其妙 （上期）  
-https://pan.baidu.com/s/1R9X-1Orr4J6C0aNFdxFKuQ  
-我的男友是校花（05）  
-https://pan.baidu.com/s/1hqsFCPZ3R397CrLNfn5zZw  
-神棍（05）  
-https://pan.baidu.com/s/172m8AB31mOBk34ZTM989bA  
-爱似钩沉（01）  
-https://pan.baidu.com/s/1L-dmlA9-uZ66vPe1CL82wQ  
-今日宜喜欢你  
-https://pan.baidu.com/s/1tDQ-rqx3kBlgRYScBRquHw  
-捌年有幸 全一期  
-https://pan.baidu.com/s/1DE-aLX6G4y7HxMrU3AtBYw  
-情花葬 全一期  
-https://pan.baidu.com/s/1mYLnE2yswG-Wv2kC4-Sbcw  
-竹马学霸我学渣 全一期  
-https://pan.baidu.com/s/15sAyVPuQgtYqRA0-2TSQOg  
-小白易凡 全一期  
-https://pan.baidu.com/s/1g4kJ2cAaoark2C7WZtIpuQ  
-南来北往 全一期  
-https://pan.baidu.com/s/1InQrsoWlOhKAru0HqWUpAQ  
-念念不忘 全一期  
-https://pan.baidu.com/s/1ZKINQ-65TMj1cOsIvY3pMA  
-逐罪 全一期  
-https://pan.baidu.com/s/1bgOv3C8fNVHKICGXW5637g  
-有声剧 奈何男妻太倾城  
-https://pan.baidu.com/s/1FhiSowWfi1K3277FveGn2w  
+广播剧  
+补将进酒（第一季和谐的06重置已补）  
+https://pan.baidu.com/s/1pMcCyrg4jHc576DtjzoWNg  
+默读 第五季（16）  
+https://pan.baidu.com/s/1RHlKPxxLBCcpENDhygaRJw   
+大家好，我跟男二在一起了（05）  
+https://pan.baidu.com/s/1ojUR7xEl5WhTaJgM-cYv0g   
+你的距离（小剧场03）  
+https://pan.baidu.com/s/196-ORG4Cf-H1zm5Rir7Gog   
+窥光（08）  
+https://pan.baidu.com/s/1cpn2k6gKIUrRIV10zrD0RA   
+三体第四季（05）  
+https://pan.baidu.com/s/1_YUDaNlDPACmMAox_bMt7A   
+某某（抒情版伴奏）  
+https://pan.baidu.com/s/1A9QRXEJZuvWaLekgH0OYKg   
+不舍（01）  
+https://pan.baidu.com/s/1Aqnnxxw8vbOT4OtEnGEY_g   
+不死堂（02）  
+https://pan.baidu.com/s/1aqTwvSEa06gWw-Lo9_B_uA   
+补解药（别的没和谐，海报和谐了，迷惑）  
+https://pan.baidu.com/s/1zuiCIfdETQEJWx7wa5__4Q   
+白夜追凶（33）  
+https://pan.baidu.com/s/1k3QtmJolGtGn5RdJ2zpCBQ   
+半截的诗（小剧场1）  
+https://pan.baidu.com/s/1sCIcsUJ4PKQlvZT_fV9MgA   
+诞下龙种吧（12ED）  
+https://pan.baidu.com/s/1TYRpbNmtwgwq1BtxtBJsRg   
+DOLO命运胶囊（10）  
+https://pan.baidu.com/s/1yGllwUc_oMF9vDDPdw5H0A   
+技术入股 全一期   
+https://pan.baidu.com/s/1wvcP-S7dpuNN2OA4eGAoGA   
+恰逢其时 全一期  
+https://pan.baidu.com/s/16ejA-z10zm44RU_OcefdxA   
+篮球场上 全一期  
+https://pan.baidu.com/s/1mOQEbLGEC59cL-67Bkg9cg   
+有声剧 势不可挡   
+https://pan.baidu.com/s/1WYuJNVAy983s6o9hnH2Suw   
+有声剧 这题超纲了（74）   
+https://pan.baidu.com/s/13xwJBq9yNvqR-G8CQc7KmA   
+有声剧 龙图案卷集574-591，前面还缺了一些，后续补  
+https://pan.baidu.com/s/1SB3uRwrCyk13yvd7gELDXA   
+有声剧 拐个男友玩养成  
+https://pan.baidu.com/s/1oKqUPSLjRqQoTUY6nD0f8A   
+有声剧 浮云半书  
+https://pan.baidu.com/s/12c75JuFRnqq--u0dkIh5Eg   
+有声剧 总裁的逆袭  
+https://pan.baidu.com/s/1fHyjvy8sm_06updRFaoAHw   
 有声剧 骷髅幻戏图  
-https://pan.baidu.com/s/11-NLgAP_DcbJW1PMI9ENFQ  
+https://pan.baidu.com/s/1JcuQnb_v80wlse30GJpzgQ   
+有声剧 奈何男妻太倾城  
+https://pan.baidu.com/s/1dmDVFpqPrq2uP4_oFbEnHA   
 
 ### 小说【11.16】
 
-https://pan.baidu.com/s/1dg-jDWB-4eF4AeXZeC8-VQ  
+https://pan.baidu.com/s/1Z4hecpIFmkSZuNPCrw1z9Q   
+小说【11.19】【2】  
+https://pan.baidu.com/s/1zmqqvARXCigab1kVP-xtyQ   
 
-### 姜子牙.1080P.115网盘
+### 姜子牙.4K
 
-https://115.com/s/sw31qks36r1?password=u033&  
-访问码：u033  
-姜子牙.1080P.迅雷云  
-https://pan.xunlei.com/s/VMMGwiA2hHF0EwUOEoVOxCDPA1 提取码:1gM8  
-不提供度盘，连续上传3次，次次不出半小时直接和谐成净网片  
-
-### 花木兰.1080国语
-
-https://pan.baidu.com/s/1JDy6ofFmyYMcIoTjgOgYng  
+4K，压缩包，我估计压缩包也会和谐，保存后马上下载，在线解压出来就是8秒，别手贱点在线解压！！  
+https://pan.baidu.com/s/18dV3XW7mU26Xuz0fmTv0tg  
 
 <br>
 
