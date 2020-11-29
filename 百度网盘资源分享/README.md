@@ -22,12 +22,12 @@
 
 > 非百度网盘存储的资源：请关注公众号，回复 9 ，获取最新资源，不限速，非百度网盘存储
 
-## 11.29资源（取消不补）
+## 11.29资源（取消不补）配合[【杂 货 铺】](https://shop.3kla.cn) 8 毛的Svip即可去广告原画质观看
 
 
 
 <pre>
-百度云 网盘 资源共享🌈, [26.11.20 00:18]
+百度云 网盘 资源共享
 11.25资源
 韩剧👇
 顶楼
@@ -175,7 +175,7 @@ https://pan.baidu.com/s/12dfNOJ2zmbWg_csI7jye4w
 被神捡到的男人
 https://pan.baidu.com/s/1VIsHQ9IiaQnhpuN6onmW7g
 
-百度云 网盘 资源共享🌈, [26.11.20 00:18]
+百度云 网盘 资源共享🌈
 广播剧👇
 穿越到明朝考科举第二季（13）
 https://pan.baidu.com/s/10uH8u1GFEKIxy6tEz38vzQ 
