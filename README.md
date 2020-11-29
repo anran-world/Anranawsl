@@ -61,5 +61,5 @@
 
 # 关于作者
 
-<center><br><br><img src="https://inews.gtimg.com/newsapp_bt/0/12726525045/641" width=400px;><br><br><br><img src="http://inews.gtimg.com/newsapp_bt/0/12056549448/641" width=400px;></center>
+<center><br><br><img src="https://p.pstatp.com/origin/137fe000238abec2d11ab" width=400px;><br><br><br><img src="http://inews.gtimg.com/newsapp_bt/0/12056549448/641" width=400px;></center>
 
