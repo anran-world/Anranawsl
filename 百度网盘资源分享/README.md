@@ -16,9 +16,9 @@
 
 <br>
 
-### 网盘资源群：
+### 分享的所有网盘资源：
 
-<img src="https://p.pstatp.com/origin/1379200023fed008e5077" width="50%">
+<img src="https://p.pstatp.com/origin/1385300014d3ddb5be623" width="30%">
 
 > 非百度网盘存储的资源：请关注公众号，回复 9 ，获取最新资源，不限速，非百度网盘存储
 
