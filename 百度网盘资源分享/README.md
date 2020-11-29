@@ -4,7 +4,7 @@
 
 ### 公众号每天更新各种Svip、翻墙、线报、撸实物、搞机教程、各种网盘资源等等等。。。
 
-![](https://inews.gtimg.com/newsapp_bt/0/12726525045/641)
+<img src="https://p.pstatp.com/origin/137fe000238abec2d11ab" width="50%">
 
 有什么不懂的问题,欢迎留言,一起共同进步  
 
