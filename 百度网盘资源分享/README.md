@@ -22,6 +22,207 @@
 
 > 非百度网盘存储的资源：请关注公众号，回复 9 ，获取最新资源，不限速，非百度网盘存储
 
+## 11.29资源（取消不补）
+
+
+
+`百度云 网盘 资源共享🌈
+韩剧👇
+顶楼
+https://pan.baidu.com/s/1QOXrxBffxSjq73dILMdNVw 
+产后调理院
+https://pan.baidu.com/s/1OFl1jyif0oIk913gTHBMAg 
+我的危险妻子
+https://pan.baidu.com/s/1p_tM0u-u27DbsRu0bxxTYA 
+无接触
+https://pan.baidu.com/s/1gCvO-SGL0PoRIpSH_qqYxg 
+
+国剧👇
+隐秘而伟大
+https://pan.baidu.com/s/1KX9TxQ9inZsvAYaBjtBvxw 
+最初的相遇，最后的别离
+https://pan.baidu.com/s/11urPEWkxkFB5e2CBA_kjyg 
+青春创世纪
+https://pan.baidu.com/s/11Jz8BDJxifj6dllajus8Hg 
+今夕何夕
+https://pan.baidu.com/s/1H7jNSdD5l1JzSOXVTst_Rg 
+棋魂
+https://pan.baidu.com/s/1YeVemSxSvoxy0w-CwJbylA 
+心宅猎人
+https://pan.baidu.com/s/119ltHRyz5sJgj6xVRUPuUg 
+焕脸
+https://pan.baidu.com/s/19k3Fe9HNqqBZ4cG2iPyx_w 
+兄台请留步
+https://pan.baidu.com/s/15_S8Ahj7llDmorw1AgLt7Q 
+鹿鼎记
+https://pan.baidu.com/s/1iGk7fUwE8LEOyhXVQy-C2w 
+澳门往事
+https://pan.baidu.com/s/1JixHIbbqibyDRbPct7-VGw 
+补燕云台.全集
+https://pan.baidu.com/s/1IcLKd9mGY5cRdYEHFKym8Q 
+补亲爱的麻洋街.全集
+https://pan.baidu.com/s/1QXRBbS_E2Lx7u49825GUEw 
+爱的厘米
+https://pan.baidu.com/s/1pQzRhp-LfGkwz00bijvzqw
+
+台剧👇
+废财闯天关
+https://pan.baidu.com/s/16nhEYbyVpbJheXp4Qd8FNg
+
+港剧👇
+男排女将
+https://pan.baidu.com/s/1UU3ft-2qqVLnGCkhjGuxPQ 
+TVB版盲侠大律师/踩过界Ⅱ（无删）    
+https://pan.baidu.com/s/118ptvIKMPPWgs-CJtFjr3A
+TVB版使徒行者3（无删）
+https://pan.baidu.com/s/1mU6YPTzCLEMFVFTb_aN65g
+大步走
+https://pan.baidu.com/s/1SaJs7erEhJfYkM_PrjQtHA
+
+综艺👇
+明星大侦探互动衍生2之目标人物（纯享）
+https://pan.baidu.com/s/1wXSQLjOshOnOc6LukSt5ng 
+听见她说
+https://pan.baidu.com/s/1enp37-k8WrP3WTnl7lHh8g 
+德云社德云六队小园子新街口站20201123
+https://pan.baidu.com/s/1WbgNcSKm2M_g4-4B7x14pA 
+你好生活2
+https://pan.baidu.com/s/1X5AgTriFbkpzqWIIOd_0PA 
+跨次元新星
+https://pan.baidu.com/s/1UjE2hRykkykRQC6Zxw9iAA 
+早餐中国3
+https://pan.baidu.com/s/1F5BYTStoutrT2OFr1PYImQ 
+新生日记2
+https://pan.baidu.com/s/1-_q08EXoVsc4PuNXHxOYSg 
+爆笑星主播
+https://pan.baidu.com/s/1RsR_aczkL0ZAVfeD1EzBTA 
+
+日剧👇
+法医朝颜2
+https://pan.baidu.com/s/1RVbPuM-36HVpiWms_l6_GQ 
+丼物委员长
+https://pan.baidu.com/s/1FeNnbGLSGPw8EpMHQZa8vg 
+恋爱的男士们
+https://pan.baidu.com/s/1XKNo4W8rJMLSlvq0jLPT5Q 
+无论夜晚有多黑暗
+https://pan.baidu.com/s/133ZzpNwJMk4ilbo8T4GLPg 
+危险的维纳斯
+https://pan.baidu.com/s/1YWs0doiF01Hpy6V29uy0ww 
+
+泰剧👇
+白色齿轮（完结）
+https://pan.baidu.com/s/12LM01_xsMP7f82FG1bD7lQ 
+杀手爱上我
+https://pan.baidu.com/s/11PIqX5NZ5FQzBKgihlvj9w 
+诱爱入局
+https://pan.baidu.com/s/1r2R4kAHmSWK-fNmij-oVqg 
+致命尸钱
+https://pan.baidu.com/s/13ACcb7tf7_dlHYWoOOJyQg 
+错色蔷薇
+https://pan.baidu.com/s/1VuT4_3Oi4Y-u0i74vLBrrQ 
+
+欧美剧👇
+良医4
+https://pan.baidu.com/s/1G-GfwBYq1NYFiJD-jTs6pg 
+黑水仙（完结）
+https://pan.baidu.com/s/1Q0GIAqBd45bYSJBJWw3rmQ 
+富贵逼人
+https://pan.baidu.com/s/1rdP-eSw3IttLCG37yNcH4w
+教师情事
+https://pan.baidu.com/s/1RhWXC9Ho5gvd6vEeqjPRoQ 
+小斧子
+https://pan.baidu.com/s/1J7IEabsh0EFxp7t-fD-aOQ 
+投行风云
+https://pan.baidu.com/s/1TcnbuhtO1M-vR8fT16gHfg 
+潘多拉2
+https://pan.baidu.com/s/1HcH-fHMVrrw14LTI6kEClw 
+冰雪暴4
+https://pan.baidu.com/s/1x-uOQIkjwoOhELb8jfF-ew 
+东邻西舍3
+https://pan.baidu.com/s/1uQGgm8osIf_s_l1_qIM1nA 
+
+动漫👇
+黑色五叶草
+https://pan.baidu.com/s/1Lu9o-SIpI8jy0s1_eeyZrQ 
+黄金S威 第三季
+https://pan.baidu.com/s/1Uhf-Cdbc-5vad1aGgUTOZA 
+画江湖之轨夜行
+https://pan.baidu.com/s/1u-WUSGT4AVVtI8DMmIZSRg 
+池袋西口公园
+https://pan.baidu.com/s/155BLCuRgfCxvYTP3Vkz9JQ 
+芯觉
+https://pan.baidu.com/s/1mXXM1p9y-hxkerbXQP76kw 
+影之诗
+https://pan.baidu.com/s/1EjPrEVvlmRt0kVpV4MxiRQ 
+R W B Y第八季
+https://pan.baidu.com/s/1_xnmjGAfPPkTtCaCPkVxQQ 
+One Room第三季
+https://pan.baidu.com/s/1ProoQO5Bwy16d5al1vILhA 
+A3!满开剧团 秋&冬
+https://pan.baidu.com/s/12nytPDZHzH4POYEZnfqJMg 
+阿松 第三季
+https://pan.baidu.com/s/128FhIHlgEpenNGu80LdH3w
+在魔王城说晚安
+https://pan.baidu.com/s/1bBt8ONdnzi2DdJ2DqTEQNw 
+灾祸的真理-ZUERST-
+https://pan.baidu.com/s/1sag53DkXZ49OL9Xxgxnu2g 
+满溢的水果挞
+https://pan.baidu.com/s/1szT8sLKib8wcAB2l4ziT9w 
+前说！
+https://pan.baidu.com/s/12dfNOJ2zmbWg_csI7jye4w 
+被神捡到的男人
+https://pan.baidu.com/s/1VIsHQ9IiaQnhpuN6onmW7g
+
+广播剧👇
+穿越到明朝考科举第二季（13）
+https://pan.baidu.com/s/10uH8u1GFEKIxy6tEz38vzQ 
+有匪第三季（14）
+https://pan.baidu.com/s/1rHJso1UoBpfsiWDb5S3evA 
+一梦长安（03）
+https://pan.baidu.com/s/1WDFJsg1cyQeJMRkFUmXQbQ 
+岁在长宁（花絮2）
+https://pan.baidu.com/s/1fVMaUhl_D0L-YKafL3ISog 
+浮华圈子（ED）
+https://pan.baidu.com/s/1PKmc63O5IJ4Ey8IQ_2UVcg 
+你麻麻觉得你要相亲了（02）
+https://pan.baidu.com/s/1NIy51hBSHmMwBZVvfFBXVw 
+针锋对决 版5（04）
+https://pan.baidu.com/s/1vO0VztUsng7HkxIM_SHsTg 
+普通市民历险记（完结FT4下）
+https://pan.baidu.com/s/1OUbV9zeEj6dhY0Sgck4swA 
+游戏加载中（03）
+https://pan.baidu.com/s/1-w0iK4qw6OYzCkCpQF5D3Q 
+杨戬传（预热预告）
+https://pan.baidu.com/s/1ZS9OVuigAgrArusy8KLBlA 
+灰白之寂（声展）
+https://pan.baidu.com/s/1TMvX904ypHgLQpXguPwGIw 
+无常劫（预告）
+https://pan.baidu.com/s/1JIyo9koxHU56CWVkW2DG6Q 
+2020糖醋排骨 生贺剧
+https://pan.baidu.com/s/191qecYkQ7UNmTgOBQnDJ8g 
+红线 全一期
+https://pan.baidu.com/s/1_3M_FnGhC2P5vY74SH6iIA 
+寂寞的叶子 全一期
+https://pan.baidu.com/s/10ul13-w9GPPPuEuCy_ZvaA 
+数学课 全一期
+https://pan.baidu.com/s/1oJBluB2kH1PAtcWNMtMfJQ 
+我是一只猫 全一期
+https://pan.baidu.com/s/14ReK1wzoYt-L--hg47mm8w 
+三个戴表 全一期
+https://pan.baidu.com/s/1aYZY8x9h5Vewbl9kicY1-Q 
+20201121矜持ING直播回放
+https://pan.baidu.com/s/1bOKYwc1xn9qI1hoWvZZ-uQ 
+【有声剧】共28部更新！！超多！！要的较多的那几个基本都更了！！（和谐待补）
+https://pan.baidu.com/s/1El9veh_OU8rHI-_7kSsTfw 
+
+狼殿下原声带
+https://pan.baidu.com/s/1MrLJ1kS-OZ_D-e_DsrMAwg 
+
+小说【11.24】
+https://pan.baidu.com/s/1aoRXRvDQhlk_kEEx-04YGg`
+
+
+
 ## 11.21资源（取消不补）
 
 ### 韩剧👇
