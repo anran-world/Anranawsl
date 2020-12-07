@@ -24,123 +24,207 @@
 
 ## 今日最新资源分享（取消不补）配合[【杂 货 铺】](https://shop.3kla.cn) 8 毛的Svip即可去广告原画质观看
 
-为减少网盘链接被和谐，以更新到word中
-
-#### [点 此 查 看](http://pan.3kla.cn/file/30378223-474497276)
+#### [更多精品资源[密：11321]](http://pan.3kla.cn/file/30378223-474497276)
 
 
 
-## 12.5资源(口令11321)
+## 12.9资源
 
 <pre>
-    12.5资源
+
 韩剧👇
-九尾狐传（完结）
-
-爱我的间谍
-
+惊奇的传闻
+https://pan.baidu.com/s/1HFlY-trvYPfR73rh6LXueA 
+Start Up（完结）
+https://pan.baidu.com/s/1_bLzLUl3xx1l0dFkDxuDmQ 
+Hush
+https://pan.baidu.com/s/1rheX_ea9gsnTHDQwSm19QQ 
+蛟龙飞天
+https://pan.baidu.com/s/1l7oR2V2FHgkJXjPV0xEPTA 
+Oh！三光别墅
+https://pan.baidu.com/s/1nmHo8mdpFs-GXp-491FgZA 
+补顶楼
+https://pan.baidu.com/s/1yj7iHf0vhcOHu2wMTqrVSw 
 
 国剧👇
-好像和你在一起.超（完结）
-
-心宅猎人
-
-青春创世纪（完结）
-
-小风暴
-
-我有特殊沟通技巧.超22
-
-装台
-
-与晨同光
-
-了不起的儿科医生
-
-以父之名（完结）
-
-补兄台请留步.全集
-
 大秦赋
-
-浪花男神
-
-我们的逆青春
-
-功夫战警（完结）
-
+https://pan.baidu.com/s/1dwZulQG7V-i4KneJK_Ptrw 
+情深缘起
+https://pan.baidu.com/s/1R_S1qttCjRc9oVU3oxUcPA 
+从结婚开始恋爱（番外）
+https://pan.baidu.com/s/1PNhDy7zCzEemgmsGhTvBEA 
+了不起的儿科医生
+https://pan.baidu.com/s/1sJduh3crVxfp7NDXT5GVZw
+装台
+https://pan.baidu.com/s/1YGBZHjds_KGC_L5vfsZxSw
+与晨同光
+https://pan.baidu.com/s/15hhISqfpP8lO5FVIXBSfSA
+爱的厘米
+https://pan.baidu.com/s/1pQzRhp-LfGkwz00bijvzqw
+只为那一刻与你相见
+https://pan.baidu.com/s/1Q04AEytSUOvEgMyZISvqGQ
 
 台剧👇
-废财闯天关
-
-
-港剧👇
-TVB版盲侠大律师/踩过界Ⅱ（无删）    
-
-TVB版使徒行者3（无删）
-
-
-综艺👇
-名侦探学院3
-
-幸福三重奏3
-
-令人心动的offer2（加料）
-
-一义孤行
-
-向着宵夜的方向
-
-登场了！敦煌（敦煌夜宴）
-
-姐姐的爱乐之程（抢鲜版）
-
-女儿们的恋爱3（plus）
-
-小巨人运动会
-
-火星情报局5
-
-出逃两日又如何
-
-
-动漫👇
-寒蝉鸣泣之时
-
-独步逍遥
-
-我家大师兄是个反派
-
-我是大神仙
-
-强袭魔女 通往柏林之路
-
-小碧蓝幻想！
-
-全员恶玉
-
+王牌辩护人
+https://pan.baidu.com/s/1_PHJrxKCaCT8ZLYvjp_9MA
+粉红色时光
+https://pan.baidu.com/s/1RRSyvHwBQn1tOvWuSB9Big
+脑波小姐
+https://pan.baidu.com/s/1wonetokVShRpFGpgau-PqQ
+返校
+https://pan.baidu.com/s/1LimDE-X2Ipj2Ve6RA4uAGQ 
 
 泰剧👇
-谁的青春不乱爱
+你是我的氧气（完结）
+https://pan.baidu.com/s/16h-snteWwmApOiLu_990sg 
+朋友圈2
+https://pan.baidu.com/s/1fM2yvfsbKKGWCRBTHuPzbQ 
+缘来誓你
+https://pan.baidu.com/s/1AZy4Dk8fsAyL0_y2rO5Slw 
 
-新嫉妒的密码
-
+综艺👇
+硬糖少女303团综+首唱会
+https://pan.baidu.com/s/1xHwhRizwo-v8_g5oU-qRQw 
+奋斗吧主播
+https://pan.baidu.com/s/13MirC_R2DHNIOZBZwumqoQ 
+宇宙打歌中心
+https://pan.baidu.com/s/1GiCd4RCRw9mEJZeMOb0KQw 
+补演员请就位2（导演终极作品）
+https://pan.baidu.com/s/1KZn2RhyRevmEg8-d2cWAHQ 
+姐妹们的茶话会
+https://pan.baidu.com/s/1IaK02USt4MvTah00Mrg-bQ 
+希望的田野
+https://pan.baidu.com/s/1ufcxSap96EAhT3AtcdfO4w 
+RM
+https://pan.baidu.com/s/1gRQc3tfWL9We-jc5MZPBlw 
+夜色中的地球.全6集
+https://pan.baidu.com/s/1fNqgzXFpvxsq1HvraPaSXQ 
+天天向上
+https://pan.baidu.com/s/1rhREPWUXsfR89OVk854t_g
 
 欧美剧👇
-终生2
+无耻之徒（美版）11
+https://pan.baidu.com/s/1Ow0exHAi3gJl49joEhKqTQ 
+权欲第二章
+https://pan.baidu.com/s/1jUmRAG1Q6jQOKpIVjmZM-Q 
+法官大人
+https://pan.baidu.com/s/1GCvVcHFB7IDFTjbFauR5zA 
+泪之谷（完结）
+https://pan.baidu.com/s/1HcpBLMLVnRkP6jwyJ10y5A 
+哈迪兄弟
+https://pan.baidu.com/s/1Ga40PHYeGQ5VZnQD6QTkXA 
 
-星际迷航：发现号3
+日剧👇
+消除老师的方程式
+https://pan.baidu.com/s/1vd8LW481WBAF9UZdc2A_Bw
+Cold Case 3～真实之门～
+https://pan.baidu.com/s/1hHMj2Tl1odd_x11tqQl5yQ 
+24 Japan
+https://pan.baidu.com/s/1zD1lGPJ880TkUbbLqV-uFg 
+恋爱的母亲们
+https://pan.baidu.com/s/1AtTPOwWqfOpzCw19N7jc7w 
+春和苍的便当盒
+https://pan.baidu.com/s/14wpHfjFro-sZ0ucODS51tQ 
+我梦见了那个女孩
+https://pan.baidu.com/s/1tVeuW_w6CcBANmQax2kLcQ 
 
-空城危机
+动漫👇
+进击的巨人 最终季（熟肉稍后）
+https://pan.baidu.com/s/17mVTjKySfPVeLxaOedqyWg 
+数码宝贝大冒险2020 重启
+https://pan.baidu.com/s/1yEELPxv7LhLGc4Xa0nkREw 
+海贼王
+https://pan.baidu.com/s/1_ER8SinO-78BtEsrSrAldw 
+吞噬星空
+https://pan.baidu.com/s/1O12YGS3sw-YV_r8VUYVG7g 
+剑网3·侠肝义胆沈剑心之长漂
+https://pan.baidu.com/s/1VCaY3oCDpVHMmgk8eoIvMQ 
+画仙纪之双月
+https://pan.baidu.com/s/15dpyU_O5nQPVwgmgs9I5zw 
+汉化日记2
+https://pan.baidu.com/s/1voxnQeRad6dgFf-8FdaeZw 
+英雄再临
+https://pan.baidu.com/s/1b0IWKGkMN14ANYKe7jnblQ 
+辣妹与恐龙
+https://pan.baidu.com/s/1K4FNj-BQKi2YMZyc50meqA 
+鬼灭之刃.中配版
+https://pan.baidu.com/s/1C9lcZtz_8VAs1ecJwJfxXQ 
+魔法科高中的劣等生 来访者篇
+https://pan.baidu.com/s/1jPlkmZTrRz3nVyVJu5ofRQ 
+攀岩sport climbing girls
+https://pan.baidu.com/s/1eZyEEEJMKc-3PwmmQJ1HAQ 
+甜梦猫
+https://pan.baidu.com/s/1luYp6Kt38paj2qkin1FXpg
+博人传
+https://pan.baidu.com/s/1Kp1ma2o0oEuoy0wlM_Q7WQ
+假面骑士圣刃
+https://pan.baidu.com/s/1A8E2uvZmNohh9Y0Z_v4UBw
+无能的奈奈
+https://pan.baidu.com/s/1qz__JaJsdDKsmSlazNhZlw 
+体操武士
+https://pan.baidu.com/s/1uUVEtxRNdD0y4S6UOW2z2Q 
+IDOLiSH7-偶像星愿- Second BEAT!
+https://pan.baidu.com/s/1sIf_xWORjqIknRZRuP36FA 
+前说！
+https://pan.baidu.com/s/12dfNOJ2zmbWg_csI7jye4w 
+被神捡到的男人
+https://pan.baidu.com/s/1VIsHQ9IiaQnhpuN6onmW7g
+奥特银河格斗 巨大阴谋
+https://pan.baidu.com/s/1WXi-bCbRvKpugksru6LkfQ 
+成神之日
+https://pan.baidu.com/s/1UCyxRkZ0VnRc1TMFDp3jWQ
+
+广播剧👇
+SCI谜案集第四季（02）
+https://pan.baidu.com/s/1JUW-o4HQxSitpb9BDQcoBQ 
+总裁酷帅狂霸拽第二季（08上+下）
+https://pan.baidu.com/s/1b8USCaxn5DRXPlolCgdF0A 
+千秋第二季（15）
+https://pan.baidu.com/s/1jNrElVE0T3fSFTMP2H3j0A 
+鬓边不是海棠红（预告）
+https://pan.baidu.com/s/1EAfLrPQpoaetZ7Y7Zldorg 
+戏精守护者（04）
+https://pan.baidu.com/s/1HKat3aulIP3p50qsWMUc7A 
+等你下课（声展）
+https://pan.baidu.com/s/1enpQ_pSrnWvwCzVIEvSa1g 
+离婚前后（定档预告）
+https://pan.baidu.com/s/1ZCzulTCh7-u0gWZvsVjBmA 
+修罗爱情（01ed）
+https://pan.baidu.com/s/1CAQ8tIiUFvT263WPjVHxDw 
+三分星野（完结ft）
+https://pan.baidu.com/s/1g0fgvdeEBVweLsPW056TYw 
+绝对契合（充电提示音）
+https://pan.baidu.com/s/1CxOZOTpxRKoPTWw5kmqMqA 
+清嘉（01）
+https://pan.baidu.com/s/1ILD3Hi7XjKIbPaww611Alg 
+谷围南亭（06）
+https://pan.baidu.com/s/1PLt6u9RaE1IC-akhUgHp8A 
+响指（06）
+https://pan.baidu.com/s/1k2CVLDESgUBp2sGsMYiDgw 
+配音研究院（02上）
+https://pan.baidu.com/s/1BNpRv9d7Zosrs0iSfUJDQw 
+深宫囚（03片尾曲）
+https://pan.baidu.com/s/1Bga4XbWf0SXJk6EbcdKavQ 
+欧米伽档案（07）
+https://pan.baidu.com/s/19pFOL_RhEhCQQROFvIbnNQ 
+不成角 全一期
+https://pan.baidu.com/s/1QLC4Mo9RR4fxSKFwJg1Oow 
+有声剧 兼职无常后我红了（46）
+https://pan.baidu.com/s/1KiAg--btDwR4vZNgDnMDHA 
+还有一波有声剧明天更
 
 
+天官赐福.漫画更46
+https://pan.baidu.com/s/1D74cRgKHghFrzvZJ-ELZMQ 
+
+电影👇
+真假美猴王之大圣无双
+https://pan.baidu.com/s/1sLnZwdtBMo08HPpx-RCIvg 
+补鬼灭之刃 无限列车篇 TC版
+https://pan.baidu.com/s/1SdYV8BQW7Tsq7KGy_Y1J7A 
+补逃狱兄弟
+https://pan.baidu.com/s/1idKFKRaLE0OYB3k2vvNwhA
 </pre>
-
-
-
-
-
-#### [点 此 直 达](http://pan.3kla.cn/file/30378223-474497276)
 
 
 
