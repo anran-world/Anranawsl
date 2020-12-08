@@ -85,5 +85,9 @@
 
 # 关于作者
 
+### 360doc：[点击直达](http://www.360doc.com/userhome/72809014)
+
+### 百度贴吧：
+
 <center><br><br><img src="https://p.pstatp.com/origin/137fe000238abec2d11ab" width=400px;><br><br><br><img src="http://inews.gtimg.com/newsapp_bt/0/12056549448/641" width=400px;></center>
 
