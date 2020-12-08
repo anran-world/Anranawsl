@@ -28,10 +28,22 @@
 
 
 
-## 12.9资源
+## 12.8资源
 
 <pre>
+需要什么资源，直接 **公众号【失心人】**后台留言即可，找到会发你的
 
+新增自动回复：
+
+​				爵迹2冷血狂宴 4K             回复“ jj ”即可			
+
+</pre>
+
+
+
+## 12.7资源
+
+<pre>
 韩剧👇
 惊奇的传闻
 https://pan.baidu.com/s/1HFlY-trvYPfR73rh6LXueA 
@@ -212,7 +224,6 @@ https://pan.baidu.com/s/1QLC4Mo9RR4fxSKFwJg1Oow
 有声剧 兼职无常后我红了（46）
 https://pan.baidu.com/s/1KiAg--btDwR4vZNgDnMDHA 
 还有一波有声剧明天更
-
 
 天官赐福.漫画更46
 https://pan.baidu.com/s/1D74cRgKHghFrzvZJ-ELZMQ 
