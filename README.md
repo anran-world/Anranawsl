@@ -69,6 +69,8 @@
 
 # 优质教程、技巧、资源存档
 
+##### [点击直达](http://pan.3kla.cn/dir/30378223-41554840-ab1710)
+
 # 自用工具合集
 
 [节点批量转订阅地址：](https://www.3kla.cn/subscribe/ "v2ray：")https://www.3kla.cn/subscribe/
