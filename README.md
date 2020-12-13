@@ -1,6 +1,6 @@
 # 每天各种白嫖福利
 
-<img src="https://mmbiz.qpic.cn/mmbiz_gif/T2j1kJwdpLb32Te4SwWIokfYbOsLx4PMwFLcXOXc0oejkrG5B39HE4ficFR8qUNzU1yd5iaA4D6qKkGp6CpIphcQ/0?wx_fmt=gif" width=100%;>    
+<img src="https://p.pstatp.com/origin/ff5f00022564b14cac6a" width=50%;>    
 
 ### 每天更新各种Svip、翻墙、线报、撸实物、搞机教程、各种网盘资源等等等。。。
 
