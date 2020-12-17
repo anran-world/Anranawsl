@@ -16,7 +16,7 @@
 
 #### [超低价百度云：https://shop.3kla.cn](http://www.anran.ga/ "超低价百度云：")
 
-#### [超低价虚拟主机和域名：https://shop.3kla.cn](http://www.anran.ga/ "超低价百度云：")
+#### [超低价虚拟主机和域名：https://host.3kla.cn](https://host.3kla.cn "超低价百度云：")
 
 # 最近更新
 
