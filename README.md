@@ -69,7 +69,9 @@
 
 # 优质教程、技巧、资源存档
 
-##### [点击直达](http://pan.3kla.cn/dir/30378223-41554840-ab1710)
+![教程存档2020-12-18](https://cdn.jsdelivr.net/gh/anran-world/contact@master/images/教程存档2020-12-18.3mh54xg0wd80.png)
+
+### [前  往  查  看](http://pan.3kla.cn/dir/30378223-41554840-ab1710)
 
 # 自用工具合集
 
