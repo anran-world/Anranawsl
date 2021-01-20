@@ -3,6 +3,6 @@ git add .
 
 
 
-gitggit commit -m "ä»Šæ—¥å·²æ›´æ–°"
+ git commit -m "½ñÈÕÒÑ¸üĞÂ"
 git push
 cmd /k
