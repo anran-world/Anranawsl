@@ -91,7 +91,7 @@
 
 ### 360doc：[点击直达](http://www.360doc.com/userhome/72809014)
 
-### 百度贴吧（存放各种图片和视频）：[点击直达](https://tieba.baidu.com/f?kw=3%E5%85%8B%E6%8B%89%E7%9A%84anran&fr=index&fp=0&ie=utf-8)
+### 博客园（存放各种资源、图片和视频）：[点击直达](https://www.cnblogs.com/anran-world/)
 
 <center><br><br><img src="https://p.pstatp.com/origin/137fe000238abec2d11ab" width=400px;><br><br><br><img src="http://inews.gtimg.com/newsapp_bt/0/12056549448/641" width=400px;></center>
 
