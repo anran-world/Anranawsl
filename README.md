@@ -2,7 +2,6 @@
 ### [立即获取](https://github.com/anran-world/Anranawsl/blob/master/1.%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98%E8%B6%85%E7%BA%A7%E4%BC%9A%E5%91%98%E3%80%81%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98Svip%E8%B4%A6%E5%8F%B7%E5%88%86%E4%BA%AB%E3%80%81%E4%BC%98%E9%85%B7vip%E3%80%81%E8%8A%92%E6%9E%9Cvip%E3%80%81%E7%88%B1%E5%A5%87%E8%89%BAvip%E3%80%81%E5%93%94%E5%93%A9%E5%93%94%E5%93%A9vip%E3%80%81B%E7%AB%99%E5%A4%A7%E4%BC%9A%E5%91%98%E3%80%81%E8%85%BE%E8%AE%AFvip.md)
 # 每天各种白嫖福利
 
-<img src="https://p.pstatp.com/origin/ff5f00022564b14cac6a" width=50%;>    
 
 ### 每天更新各种Svip、翻墙、线报、撸实物、搞机教程、各种网盘资源等等等。。。
 
@@ -14,11 +13,11 @@
 
 #### 喜欢的话，欢迎`♥ Star`
 
-#### [博客地址：https://3kla.cn](https://3kla.cn/ "博客地址：")
+#### [博客地址：https://www.3kla.xyz](https://www.3kla.xyz "博客地址：")
 
-#### [超低价百度云：https://shop.3kla.cn](http://www.anran.ga/ "超低价百度云：")
+#### [超低价百度云：http://anran.ga/](http://anran.ga/ "超低价百度云：")
+#### [电报频道，白嫖各种福利：https://t.me/anranbp](https://t.me/anranbp "电报频道，白嫖各种福利：")
 
-#### [超低价虚拟主机和域名：https://host.3kla.cn](https://host.3kla.cn "超低价百度云：")
 
 # 最近更新
 
