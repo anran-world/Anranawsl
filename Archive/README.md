@@ -1,6 +1,6 @@
 # 用来永久保存一些资源，持续更新
 
-> 越靠前越新哦，百度云Svip天天更新的，**备用地址：需科学上网**
+> 越靠前越新哦，**备用地址：需科学上网**
 
 1. [2022免费VPS一览](https://archive-center.github.io/anran1/2022免费VPS一览.html)-----[备用地址](https://archive.ph/7DpVP)
 1. [运营工具大全 - 收录优秀好用的运营工具](https://archive-center.github.io/anran1/运营工具大全%20-%20收录优秀好用的运营工具.html)-----[备用地址](https://archive.ph/ntUeE)
