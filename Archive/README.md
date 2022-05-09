@@ -10,3 +10,7 @@
 1. [蓝奏云盘上的安卓APP大合集](https://github.com/anran-world/Anranawsl/blob/master/Archive/蓝奏云盘上的安卓APP大合集.md)-----[备用地址](https://archive.ph/LnuTq)
 1. [共享会员历史分享](https://github.com/anran-world/Anranawsl/blob/master/Archive/共享会员历史分享.md)-----[备用地址](https://archive.ph/tMJvg)
 1. [bilibili大会员B站大会员免费共享](https://github.com/anran-world/Anranawsl/blob/master/Archive/bilibili大会员B站大会员免费共享.md)-----[备用地址](https://archive.ph/39o5U)
+
+
+### 可直接访问 [我爱白嫖](https://www.anranbp.ga/)，点击优质存档即可
+<img src="https://www.helloimg.com/images/2022/05/09/RNiaJD.png">
