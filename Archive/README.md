@@ -3,6 +3,7 @@
 > 越靠前越新哦，**备用地址：需科学上网**
 
 1. 置顶中：[各种超低价会员，售后稳如狗](http://feizhu.faka55.xyz/)
+1. [二刺螈导航 - 冻鳗导航_动漫导航_ACG导航_二次元导航](https://archive-center.github.io/anran1/二刺螈导航%20-%20冻鳗导航_动漫导航_ACG导航_二次元导航.html)-----[备用地址](https://archive.ph/pDqOl)
 1. [白票edu邮箱最全教程](https://archive-center.github.io/anran1/【白票edu邮箱最全教程.html)-----[备用地址](https://archive.ph/8lk7z)
 3. [Telegram DC 之都市传说](https://archive-center.github.io/anran1/Telegram%20DC%20之都市传说.html)-----[备用地址](https://archive.ph/rZ0qq)
 4. [优秀工具箱集合](https://archive-center.github.io/anran1/优秀工具箱集合.html)-----[备用地址](https://archive.ph/Pv8ih)
