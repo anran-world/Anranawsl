@@ -10,7 +10,7 @@
 </p>
 <p align="center"> 
 <a href=https://sourl.cn/5NQksz target=_blank>Anran杂货铺</a><br />
-<a href=https://sourl.cn/XsyDH6 target=_blank>线报分享</a>a><br />
+<a href=https://sourl.cn/XsyDH6 target=_blank>线报分享</a><br />
 <a href=http://youhui.plus/?MG8DPLY6 target=_blank>Anran粉丝福利</a><br />
 <a href="https://sourl.cn/wmrHtY" target="_blank">影视会员批发</a><br />
 <a href=https://t.me/anranbp target=_blank>我爱白嫖电报</a><br />
