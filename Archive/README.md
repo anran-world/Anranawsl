@@ -19,4 +19,4 @@
 
 
 ### 可直接访问 [我爱白嫖](https://www.anranbp.ga/)，点击优质存档即可，站点的其他资源也在持续更新中
-<img src="https://www.helloimg.com/images/2022/05/09/RNiaJD.png">
+<img src="./bg.png">
