@@ -1,1 +1,0 @@
-##### 将该地址：[https://github.com/anran-world/Anranawsl/blob/master/%E6%9C%80%E4%BD%B3Tracker%E6%9B%B4%E6%96%B0/best-trackers.txt](https://github.com/anran-world/Anranawsl/blob/master/最佳Tracker更新/best-trackers.txt)粘贴到trackers更新处即可，也可以点开[best-trackers](https://github.com/anran-world/Anranawsl/blob/master/%E6%9C%80%E4%BD%B3Tracker%E6%9B%B4%E6%96%B0/best-trackers.txt )自己复制，粘贴到列表即可
