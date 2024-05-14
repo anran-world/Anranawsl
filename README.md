@@ -24,7 +24,7 @@
 4. #### [线报分享](https://anran.ga/)
 5. #### [超低价百度云SVIP](https://52bp.icu/)
 6. #### [电报频道，白嫖各种福利：https://t.me/anranbp](https://t.me/anranbp "电报频道，白嫖各种福利：")
-6. #### [科学推荐](https://github.com/hjyvip/xingtian)
+6. #### [科学推荐](https://yun.huoyuan.tk)
 
 
 #### 喜欢的话，欢迎`♥ Star`
@@ -32,7 +32,7 @@
 
 
 
-## Star History
+# Star History
 
 <a href="https://star-history.com/#anran-world/Anranawsl&Date">
  <picture>
