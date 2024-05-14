@@ -32,4 +32,12 @@
 
 
 
+## Star History
 
+<a href="https://star-history.com/#anran-world/Anranawsl&Date">
+ <picture>
+   <source media="(prefers-color-scheme: dark)" srcset="https://api.star-history.com/svg?repos=anran-world/Anranawsl&type=Date&theme=dark" />
+   <source media="(prefers-color-scheme: light)" srcset="https://api.star-history.com/svg?repos=anran-world/Anranawsl&type=Date" />
+   <img alt="Star History Chart" src="https://api.star-history.com/svg?repos=anran-world/Anranawsl&type=Date" />
+ </picture>
+</a>
