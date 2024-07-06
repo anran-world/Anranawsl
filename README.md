@@ -23,7 +23,8 @@
 4. #### [线报分享](https://anran.ga/)
 5. #### [超低价百度云SVIP](https://52bp.icu/)
 6. #### [电报频道，白嫖各种福利：https://t.me/anranbp](https://t.me/anranbp "电报频道，白嫖各种福利：")
-6. #### [科学推荐](https://yun.huoyuan.tk)
+7. #### [科学推荐](https://yun.huoyuan.tk)
+8. #### [百度网盘 资源 代下载 代转存](https://github.com/anran-world/Anranawsl/blob/master/3.%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98%20%E8%B5%84%E6%BA%90%20%E4%BB%A3%E4%B8%8B%E8%BD%BD%20%E4%BB%A3%E8%BD%AC%E5%AD%98.md)
 
 
 #### 喜欢的话，欢迎`♥ Star`
