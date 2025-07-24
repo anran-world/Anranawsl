@@ -1,7 +1,5 @@
 
-<p align="center"> 
-  您是第  <img src="https://profile-counter.glitch.me/anran-world/count.svg" />位访问者
-</p>
+
 <p align="center"> 
 <a href="https://feizhu.3kla.top/assets/img/default/" target=_blank>Anran杂货铺(新增抖音快手tg业务)</a><br />
 <a href="https://github.com/anran-world/Anranawsl/blob/master/4.%E4%BA%AC%E4%B8%9C%E4%BA%AC%E8%B1%86%E4%BB%A3%E6%8C%82.md" target=_blank>京东京豆代挂</a><br />
