@@ -53,7 +53,7 @@ App.tsx 功能：
 
 ```
 
-
+![Alt Text](https://wsrv.nl/?url=https://picui.ogmua.cn/s1/2026/04/05/6)
 
 # 获取地址
 
