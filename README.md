@@ -33,10 +33,10 @@
 
 # Star History
 
-<a href="https://star-history.com/#anran-world/Anranawsl&Date">
- <picture>
-   <source media="(prefers-color-scheme: dark)" srcset="https://api.star-history.com/svg?repos=anran-world/Anranawsl&type=Date&theme=dark" />
-   <source media="(prefers-color-scheme: light)" srcset="https://api.star-history.com/svg?repos=anran-world/Anranawsl&type=Date" />
-   <img alt="Star History Chart" src="https://api.star-history.com/svg?repos=anran-world/Anranawsl&type=Date" />
+<a href="https://star-history.dera.page/#anran-world/Anranawsl&Date">
+  <picture>
+   <source media="(prefers-color-scheme: dark)" srcset="https://star-history.dera.page/svg?repos=anran-world/Anranawsl&type=Date&theme=dark" />
+   <source media="(prefers-color-scheme: light)" srcset="https://star-history.dera.page/svg?repos=anran-world/Anranawsl&type=Date" />
+   <img alt="Star History Chart" src="https://star-history.dera.page/svg?repos=anran-world/Anranawsl&type=Date" />
  </picture>
 </a>
