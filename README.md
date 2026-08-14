@@ -33,10 +33,10 @@
 
 # Star History
 
-<a href="https://star-history.com/#anran-world/Anranawsl&Date">
+<a href="https://www.star-history.com/?repos=anran-world%2FAnranawsl&type=date&legend=top-left">
  <picture>
-   <source media="(prefers-color-scheme: dark)" srcset="https://api.star-history.com/svg?repos=anran-world/Anranawsl&type=Date&theme=dark" />
-   <source media="(prefers-color-scheme: light)" srcset="https://api.star-history.com/svg?repos=anran-world/Anranawsl&type=Date" />
-   <img alt="Star History Chart" src="https://api.star-history.com/svg?repos=anran-world/Anranawsl&type=Date" />
+   <source media="(prefers-color-scheme: dark)" srcset="https://api.star-history.com/chart?repos=anran-world/Anranawsl&type=date&theme=dark&legend=top-left&sealed_token=70za5hsS1M_QDCsfwnUsiDs9D4ej5KZkTmoaqvq-smlTTU-I9QqhlSbfQOB8xwZMuj895yc2-T5srhDnl3upRMi41dj235wirMz_wb9LyLmIaYT0MxrfGEAGBkS0FJLQrUU0ad4Bj0Tltj2VxlioySTtq9VBctkUsDf9AC_4uaQDKj1PcXNF6tJapCck" />
+   <source media="(prefers-color-scheme: light)" srcset="https://api.star-history.com/chart?repos=anran-world/Anranawsl&type=date&legend=top-left&sealed_token=70za5hsS1M_QDCsfwnUsiDs9D4ej5KZkTmoaqvq-smlTTU-I9QqhlSbfQOB8xwZMuj895yc2-T5srhDnl3upRMi41dj235wirMz_wb9LyLmIaYT0MxrfGEAGBkS0FJLQrUU0ad4Bj0Tltj2VxlioySTtq9VBctkUsDf9AC_4uaQDKj1PcXNF6tJapCck" />
+   <img alt="Star History Chart" src="https://api.star-history.com/chart?repos=anran-world/Anranawsl&type=date&legend=top-left&sealed_token=70za5hsS1M_QDCsfwnUsiDs9D4ej5KZkTmoaqvq-smlTTU-I9QqhlSbfQOB8xwZMuj895yc2-T5srhDnl3upRMi41dj235wirMz_wb9LyLmIaYT0MxrfGEAGBkS0FJLQrUU0ad4Bj0Tltj2VxlioySTtq9VBctkUsDf9AC_4uaQDKj1PcXNF6tJapCck" />
  </picture>
 </a>
