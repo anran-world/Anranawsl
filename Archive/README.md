@@ -20,6 +20,6 @@
 15. [免费白嫖 Claude 和GPT 模型教程，3 分钟就能用.md](https://github.com/anran-world/Anranawsl/blob/master/Archive/%E5%85%8D%E8%B4%B9%E7%99%BD%E5%AB%96%20Claude%20%E5%92%8CGPT%20%E6%A8%A1%E5%9E%8B%E6%95%99%E7%A8%8B%EF%BC%8C3%20%E5%88%86%E9%92%9F%E5%B0%B1%E8%83%BD%E7%94%A8.md)
 
 
-### 可直接访问 [我爱白嫖](https://www.anranbp.ga/)，点击优质存档即可，站点的其他资源也在持续更新中
+### 可直接访问 [我爱白嫖](https://anran.3kla.top/)，点击优质存档即可，站点的其他资源也在持续更新中
 > 点击图片查看大图
 <img src="./bg.png">
