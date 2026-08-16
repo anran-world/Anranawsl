@@ -2,7 +2,7 @@
 
 > 越靠前越新哦，**备用地址：需科学上网**
 
-1. 置顶中：[各种超低价会员，售后稳如狗](https://feizhu.huiyuan2.xyz/)
+1. 置顶中：[各种超低价会员，售后稳如狗](http://shop.88hy.top/)
 1. [二刺螈导航 - 冻鳗导航_动漫导航_ACG导航_二次元导航](https://archive-center.github.io/anran1/二刺螈导航%20-%20冻鳗导航_动漫导航_ACG导航_二次元导航.html)-----[备用地址](https://archive.ph/pDqOl)
 1. [白票edu邮箱最全教程](https://archive-center.github.io/anran1/【白票edu邮箱最全教程.html)-----[备用地址](https://archive.ph/8lk7z)
 3. [Telegram DC 之都市传说](https://archive-center.github.io/anran1/Telegram%20DC%20之都市传说.html)-----[备用地址](https://archive.ph/rZ0qq)
@@ -16,6 +16,7 @@
 11. [蓝奏云盘上的安卓APP大合集](https://github.com/anran-world/Anranawsl/blob/master/Archive/蓝奏云盘上的安卓APP大合集.md)-----[备用地址](https://archive.ph/LnuTq)
 12. [共享会员历史分享](https://github.com/anran-world/Anranawsl/blob/master/Archive/共享会员历史分享.md)-----[备用地址](https://archive.ph/tMJvg)
 13. [bilibili大会员B站大会员免费共享](https://github.com/anran-world/Anranawsl/blob/master/Archive/bilibili大会员B站大会员免费共享.md)-----[备用地址](https://archive.ph/39o5U)
+14. [一个邮箱免费领10个.zone.id二级域名](https://github.com/anran-world/Anranawsl/blob/master/Archive/%E4%B8%80%E4%B8%AA%E9%82%AE%E7%AE%B1%E5%85%8D%E8%B4%B9%E9%A2%8610%E4%B8%AA.zone.id%E4%BA%8C%E7%BA%A7%E5%9F%9F%E5%90%8D.md)
 
 
 ### 可直接访问 [我爱白嫖](https://www.anranbp.ga/)，点击优质存档即可，站点的其他资源也在持续更新中
