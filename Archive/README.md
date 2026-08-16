@@ -17,6 +17,7 @@
 12. [共享会员历史分享](https://github.com/anran-world/Anranawsl/blob/master/Archive/共享会员历史分享.md)-----[备用地址](https://archive.ph/tMJvg)
 13. [bilibili大会员B站大会员免费共享](https://github.com/anran-world/Anranawsl/blob/master/Archive/bilibili大会员B站大会员免费共享.md)-----[备用地址](https://archive.ph/39o5U)
 14. [一个邮箱免费领10个.zone.id二级域名](https://github.com/anran-world/Anranawsl/blob/master/Archive/%E4%B8%80%E4%B8%AA%E9%82%AE%E7%AE%B1%E5%85%8D%E8%B4%B9%E9%A2%8610%E4%B8%AA.zone.id%E4%BA%8C%E7%BA%A7%E5%9F%9F%E5%90%8D.md)
+15. [免费白嫖 Claude 和GPT 模型教程，3 分钟就能用.md](https://github.com/anran-world/Anranawsl/blob/master/Archive/%E5%85%8D%E8%B4%B9%E7%99%BD%E5%AB%96%20Claude%20%E5%92%8CGPT%20%E6%A8%A1%E5%9E%8B%E6%95%99%E7%A8%8B%EF%BC%8C3%20%E5%88%86%E9%92%9F%E5%B0%B1%E8%83%BD%E7%94%A8.md)
 
 
 ### 可直接访问 [我爱白嫖](https://www.anranbp.ga/)，点击优质存档即可，站点的其他资源也在持续更新中
